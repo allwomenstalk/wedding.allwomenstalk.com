@@ -1,0 +1,69 @@
+---
+title: "8 Truths to Know about Your Wedding Day ..."
+description: "Some People Will Surprise You for the Worse; Most People Will Surprise You for the Better; Assume the Rule of One; Bask in Your Own Beauty!; You Need to Take Care of Yourself; More ..."
+url: "https://wedding.allwomenstalk.com/truths-to-know-about-your-wedding-day/"
+category: "wedding"
+last_updated: "2026-05-19"
+---
+
+# 8 Truths to Know about Your Wedding Day ...
+
+The truths about your wedding day... It will be perfect, right? Well, yes, in many ways it will be. Having married the love of my life in May, I can happily speak to this fact. And yet, there is also some information about that special moment, the preparation leading up to it, and the time afterwards, that even the most well-planned bride should know. Much like love, when it comes to the reality of getting married, some of it is wonderful, some of it is shocking, some of it is just downright hilarious, and inevitably, some of it is “get-me-a-cosmopolitan” inducing. Whether you are newly engaged, soon-to-be married or still looking for the right one, here are 8 truths about your wedding day to take to heart, and hopefully better prepare you for a few of the “really?!” moments surely ahead...
+
+## 1. Some People Will Surprise You for the Worse
+
+The day after my engagement my mother warned me, “Weddings bring out the absolutely best.. and the absolute worst, in people. Brace yourself.” Wiser wedding words had perhaps never been spoken and it was not long before a few of our friends and family members began proving her right with jealousy, inappropriate requests and rude behavior. An important truth about being a bride is that despite your best intentions, and the joyous sense of occasion, some of your loved ones may surprise you for the worse, and it can often be those you would have least expected. While this disappointing behavior is incredibly frustrating, you have a choice about how much you let it affect you, and your experience. No matter the negativity, maintain your composure, behave with grace and dignity, and stay focused on the sweet, simple fact that you are marrying the love of your life! Who knows? You may be the one bride who defies this fact and has only positive, supportive experiences. In case not, tuck this advice in your wedding dress, brush them off and hit that aisle like the runway it is, gorgeous - this is about you, your groom, and the many people who love and adore you both.
+
+## 2. Most People Will Surprise You for the Better
+
+Every coin has two sides and fortunately, for the few people who surprise you for the worse, one of the best truths about your wedding day is that there will also be countless people who surprise you for the better! Friends, relatives, co-workers, wedding planners - there will be a number of people who shine with support, go the extra mile, and help you achieve your dream wedding in beautiful ways you may not have even anticipated. Many of my family members travelled great distances at their own expense, with open arms and beautiful gifts in tow, to attend our destination wedding; my father, mother and brother worked tirelessly to make every moment absolutely perfect for us the entire weekend; and on my wedding day my stunning cousins and girlfriends spontaneously gathered in my hotel room, armed with pink champagne, endless laughter, love and support, to help me get ready for the momentous occasion ahead. The point is that there may be people who disappoint you, and such is life, but when it comes to the reality of getting married - small and big weddings alike - there will be many more people who shower you with love and affection, thrilled at your much deserved happiness and eager to congratulate and celebrate with you. Those are the people who deserve your time and energy, and in my experience, those are the people who will also be there to support you when the wedding day is over and the marriage begins.
+
+## 3. Assume the Rule of One
+
+Another of the important truths about your wedding day, and good advice for perfectionists like myself, is the Rule of One: no matter how well-planned you are, and how meticulously you have organized everything, on your big day you can typically expect at least one thing to go differently than you had predicted. Perhaps it works out for the better, sometimes it may not - either way, if you are about to go in to your day expecting sheer perfection, the Rule of One is a key point to remember. Cakes melt, menus are sometimes misspelled, DJs are only human, and the weather can be unpredictable - often, the thing to go wrong is something totally out of your control as a bride. The bottom line? You are about to get married, and the love you and your partner share was built on adoring each other for every beautiful and flawed quality you possess. The little imperfections, or the things that don’t go according to plan on your wedding day will only serve to make it that much more memorable, and that much more real - much like your relationship. Be grateful for the moment exactly as it turns out and keep in mind, a little rain during the ceremony is a small thing in the long run. In fact, my guess is that twenty years in to it, that rain will be a really precious, endearing, funny story you both look back on with immense affection, grateful you had each other’s hand to hold as you raced to cover.
+
+## 4. Bask in Your Own Beauty!
+
+Of all the truths about your wedding day, perhaps the single most delicious is this: you will be stunning! I don’t just mean, good-hair-day, fit-in-to-my-skinny-jeans, this-lipstick-is-really-working-for-me attractive. I mean jaw-dropping, eat-your-heart-out, oh-my-goodness-girl gorgeous. From the beaming happiness, the gown, the accessories, makeup and hair... there is something about it all together that just forms this perfect, magical, stars-aligned radiance that defies all normal sense of beauty. And the truth about being a bride is that you are totally welcome - encouraged, even - to bask in your own glow. This is the moment to forget about the pounds you did not lose, to stop being so hard on your own appearance and much like the Rule of One, to not stress over the minor details. Instead take yourself in and be grateful for every lovely feature that makes you a beautiful individual. Be confident and be thrilled with the way you look! This is the moment to embrace all that is right about you, all that is special about your groom, and all that is wonderful about your love for one another. All while looking downright fabulous. Yes!
+
+## 5. You Need to Take Care of Yourself
+
+Properly taking care of yourself is one of the facts about your wedding day that will enable you to have the best possible time, most enjoy the experience, truly savor the moment, and frankly, not go crazy. Countless brides get caught up in the excitement and nerves, totally forget themselves and wind up exhausted and starving at the altar - not a good state for any person, let alone bride, to be in. While you may not be able to fully maintain a normal routine the day before, or the day of, it’s so important to make sure you are eating enough, making time for rest, and keeping yourself as calm and relaxed as possible. Excessive alcohol, major stress, little to no sleep, forgetting to eat or starving yourself for that last fraction of a pound, is a recipe for disaster at your wedding, and not a great way to start out on your married life ahead. Do your family, your fiance and yourself a great service by honoring the moment as the best version of you - rested, fed and happy. Not only will you have a more enjoyable time, you will feel your best, and that is a truly perfect place to start out as a wife.
+
+## 6. Etiquette is Important
+
+There are certain things in life that are not mandatory, per se, but as a general rule, are just really good ideas - much like looking both ways when crossing the road or throwing out dairy products past the expiration date. While each bride is different, and celebrations can range from five-star elaborate to feel-good casual, maintaining a certain level of etiquette is an exceptionally good idea when it comes to your wedding. People may not remember the food or the music, but I can promise you that one of the truths about your wedding day is that most of your loved ones will remember how gracious, poised and elegant you were - or were not - both on the actual day, and also in the time leading up to it. By all means, stay true to your vision for the event, and be yourself, but don’t undermine your experience and planning by lacking in decorum. A willingness to compromise in some of the plans for your grooms family, an appreciative, radiant attitude during the wedding, and grateful, promptly sent-out, handwritten thank you cards will all lead your friends and family to see you as the class-act you truly are. No bridezilla here!
+
+## 7. It Goes so Fast - Enjoy It!
+
+The old adage, “the years are long but the days are short”, is especially true for brides, when the engagement and planning stages can feel like a really long time, but the actual day goes by in the seeming blink of an eye, or toss of a bouquet. As such, one of the facts about your wedding to really take to heart, is that the day itself is so much an experience unlike any other, and the commitment is so precious and intense, it can be overwhelming and surreal to all take in - you have to be very careful not to let it fly by you. Savor the details, be present in the moment, and really absorb the event as much as you can. Let the day play out the way it’s meant to and allow yourself to just be the bride, totally focused on the time with your family, friends and new husband. Invest yourself in the experience - the funny, charming things that happen, the glances between you and your groom, the beauty of it all, the accumulation of your love for each other - and my guess is that the next morning, and the days, months and years to follow, you will be very grateful you lived that night to its fullest and have the memories to cherish forever.
+
+## 8. The Marriage Matters More than the Wedding
+
+A wedding is such a big event in a person’s life, that it can be natural to temporarily lose sight of the meaning behind the celebration and get very wrapped up in the planning and anticipation. I remember the countless hours I spent analyzing every little decision, preparing each detail down to perfection in the months leading up to our wedding - and I also remember how much it overtook me, how many moments I felt overwhelmed and how much time I dedicated to this one event. Of all the truths about your wedding day, this is the most important: a wedding is a blessed, beautiful, magical thing, but it’s also just one day, one celebration. The marriage, the love and attention, the effort and faith, the trust and honor you dedicate to it, and the moments of joy you have along the way - it is all so much bigger, and so much more important than that one day. In fact, the morning after our wedding, having put so much of myself in to the experience, I was feeling a little sad to have it all over so quickly, to be coming down from such a momentous moment. My new husband said to me, “It was a wonderful day, and a stunning party - you planned everything perfectly. But there will be many parties for us, many beautiful gowns for you, and many amazing, happy celebrations in our life together. This was just the beginning.” Your wedding will be many perfect things, just like mine was, but the best of all, it will be the first step in your marriage - remember to put as much love and care every day in to that, as you gave to the wedding, and you should be on track for a very blissful happily ever after.
+
+The reality of getting married, the truth about being a bride - there is so much to consider, but the most important thing is that you are marrying your love, and starting a life together! With these truths about your wedding day, a little guidance from your own friends and family, and of course, your wonderful groom by your side, you will be dancing your way in to the married life in no time! Speaking of which, are you engaged and planning your wedding? What have been your experiences? Or are you already married, with stories from your own big day? We would love to hear from you all!
+
+Top Image Source: _dpshots.com_
+
+## Related Posts
+
+- [rustic invitations](https://wedding.allwomenstalk.com/unique-rustic-wedding-invitations/)
+- [tips on how to reduce wedding costs](https://wedding.allwomenstalk.com/smart-ways-to-cut-costs-for-your-wedding/)
+- [wedding titles ideas](https://wedding.allwomenstalk.com/unconventional-wedding-ideas/)
+- [transportation ideas for wedding](https://wedding.allwomenstalk.com/fun-wedding-transportation-ideas-2/)
+- [unique wedding venue](https://wedding.allwomenstalk.com/unusual-locations-for-a-wedding/)
+- [fall apple decorations](https://wedding.allwomenstalk.com/apple-decor-wedding-ideas-for-fall/)
+- [diy wedding present](https://wedding.allwomenstalk.com/diy-gifts-for-a-bride-and-groom/)
+- [wedding at dia](https://wedding.allwomenstalk.com/ways-to-plan-a-dia-de-los-muertos-wedding/)
+- [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
+- [mr adorable](https://wedding.allwomenstalk.com/adorable-mr-mrs-wedding-items-to-buy/)
+- [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
+- [8 Things People Hate about Weddings ...](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
+
+## Site Information
+
+- [Main page](https://allwomenstalk.com)
+- [Contact us](https://allwomenstalk.com/contact.html)
+- [HTML article](https://wedding.allwomenstalk.com/truths-to-know-about-your-wedding-day/)
+
