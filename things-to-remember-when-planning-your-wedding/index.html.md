@@ -3,7 +3,7 @@ title: "7 Things to Remember when Planning Your Wedding ..."
 description: "Guestbook & Pens; Wedding Favours; Emergency Kit; Car Ribbon; Marriage Certificate; More ..."
 url: "https://wedding.allwomenstalk.com/things-to-remember-when-planning-your-wedding/"
 category: "wedding"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Things to Remember when Planning Your Wedding ...
@@ -59,14 +59,14 @@ Did you plan your own wedding? Did it all go swimmingly or was something forgott
 ## Related Posts
 
 - [7 of the Most Memorable TV Weddings ...](https://movies.allwomenstalk.com/of-the-most-memorable-tv-weddings/)
-- [7 Ways to Make Your Wedding More Affordable for Gu...](https://wedding.allwomenstalk.com/ways-to-make-your-wedding-more-affordable-for-guests/)
 - [7 Splendid Tips for Choosing Your Wedding DJ ...](https://wedding.allwomenstalk.com/splendid-tips-for-choosing-your-wedding-dj/)
-- [how to hint at marriage](https://love.allwomenstalk.com/creative-tips-for-hinting-at-marriage/)
-- [7 Tips for Finding the Best Wedding Rings for Your...](https://wedding.allwomenstalk.com/tips-in-finding-the-best-wedding-rings-for-your-budget/)
-- [7 Ways to Include Animals in Your Wedding ...](https://wedding.allwomenstalk.com/ways-to-include-animals-in-your-wedding/)
-- [things to include on wedding website](https://wedding.allwomenstalk.com/things-you-should-have-on-your-wedding-website/)
 - [7 Ways to Prevent Your Family from Taking over You...](https://wedding.allwomenstalk.com/ways-to-prevent-your-family-from-taking-over-your-wedding/)
+- [how to hint at marriage](https://love.allwomenstalk.com/creative-tips-for-hinting-at-marriage/)
+- [7 Ways to Make Your Wedding More Affordable for Gu...](https://wedding.allwomenstalk.com/ways-to-make-your-wedding-more-affordable-for-guests/)
+- [7 Tips for Finding the Best Wedding Rings for Your...](https://wedding.allwomenstalk.com/tips-in-finding-the-best-wedding-rings-for-your-budget/)
 - [favors for wedding reception](https://wedding.allwomenstalk.com/super-cool-wedding-reception-favors/)
+- [things to include on wedding website](https://wedding.allwomenstalk.com/things-you-should-have-on-your-wedding-website/)
+- [7 Ways to Include Animals in Your Wedding ...](https://wedding.allwomenstalk.com/ways-to-include-animals-in-your-wedding/)
 - [7 Things Your Wedding Florist Secretly Wants You t...](https://wedding.allwomenstalk.com/things-your-wedding-florist-secretly-wants-you-to-know/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 - [8 Tips on Having the Perfect Wedding ...](https://wedding.allwomenstalk.com/8-tips-on-having-the-perfect-wedding/)

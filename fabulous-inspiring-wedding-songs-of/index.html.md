@@ -3,7 +3,7 @@ title: "9 Fabulous & Inspiring Wedding Songs of 2011 ..."
 description: "Marry Me by Train; Marry You by Bruno Mars; Rhythm of Love by Plain White T's; Love Story by Taylor Swift; Mine by Taylor Swift; More ..."
 url: "https://wedding.allwomenstalk.com/fabulous-inspiring-wedding-songs-of/"
 category: "wedding"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 9 Fabulous & Inspiring Wedding Songs of 2011 ...
@@ -52,15 +52,15 @@ Top Image Source: [weheartit.com](https://weheartit.com/entry/15746882)
 
 ## Related Posts
 
+- [songs to blast](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
+- [happy songs to start the day](https://lifestyle.allwomenstalk.com/best-songs-to-make-your-day-better/)
+- [katy perry tracklist](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
+- [upbeat work music](https://weightloss.allwomenstalk.com/upbeat-songs-to-work-out-to/)
 - [i like some of the gaga songs](https://celebs.allwomenstalk.com/favourite-lady-gaga-songs/)
 - [songs that get stuck in your head](https://lifestyle.allwomenstalk.com/top-songs-that-get-stuck-in-your-head/)
-- [the best movie songs](https://movies.allwomenstalk.com/incredibly-moving-movie-theme-songs/)
-- [katy perry tracklist](https://lifestyle.allwomenstalk.com/katy-perry-songs-i-love/)
-- [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
-- [songs to blast](https://lifestyle.allwomenstalk.com/songs-to-blast-while-in-the-car/)
 - [music plants like](https://gardening.allwomenstalk.com/5-songs-your-plants-will-like/)
-- [happy songs to start the day](https://lifestyle.allwomenstalk.com/best-songs-to-make-your-day-better/)
-- [upbeat work music](https://weightloss.allwomenstalk.com/upbeat-songs-to-work-out-to/)
+- [9 Musicals I Never Tire of ...](https://movies.allwomenstalk.com/musicals-i-never-tire-of/)
+- [the best movie songs](https://movies.allwomenstalk.com/incredibly-moving-movie-theme-songs/)
 - [Exercise Music: 9 New Workout Songs to Boost Your ...](https://health.allwomenstalk.com/exercise-music-new-workout-songs-to-boost-your-energy/)
 - [5 Celebrity Weddings of Spring 2011 ...](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
 - [7 Celebrity Weddings to Watch for in 2011 ...](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)

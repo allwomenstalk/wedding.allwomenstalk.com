@@ -3,7 +3,7 @@ title: "7 Obvious Signs That You Are High on Wedding Fever ..."
 description: "You’ve Already Tried on a Wedding Dress or Two; You’ve Already Chosen Your Maid of Honor; You’ve Selected the Song for Your First Dance; You Wrote Your Guest List; You’ve Searched Wedding Planners in Your Area; More ..."
 url: "https://wedding.allwomenstalk.com/obvious-signs-that-you-are-high-on-wedding-fever/"
 category: "wedding"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Obvious Signs That You Are High on Wedding Fever ...
@@ -44,16 +44,16 @@ Even though wedding fever can consume and overwhelm you, try to remember that th
 
 ## Related Posts
 
+- [what is a bibliophile](https://books.allwomenstalk.com/sure-signs-youre-a-bibliophile/)
+- [signs you have outgrown your friends](https://lifestyle.allwomenstalk.com/signs-youve-outgrown-your-friends/)
 - [how often should you wash your jeans](https://fashion.allwomenstalk.com/signs-you-may-be-wearing-too-much-of-one-color/)
+- [complete family drawing](https://parenting.allwomenstalk.com/ways-to-know-when-your-familys-complete/)
+- [nonchalant](https://lifestyle.allwomenstalk.com/signs-of-a-selfish-person-that-you-should-pay-attention-to/)
+- [signs of a people pleaser](https://lifestyle.allwomenstalk.com/signs-you-are-a-people-pleaser-and-dont-know-it/)
 - [my friends jot mom](https://lifestyle.allwomenstalk.com/signs-youre-the-mom-of-your-friend-group/)
 - [a moody person](https://lifestyle.allwomenstalk.com/signs-of-excessive-moodiness/)
 - [the victim card](https://inspiration.allwomenstalk.com/signs-you-might-be-playing-the-victim-card-and-how-to-stop/)
-- [signs you have outgrown your friends](https://lifestyle.allwomenstalk.com/signs-youve-outgrown-your-friends/)
-- [what is a bibliophile](https://books.allwomenstalk.com/sure-signs-youre-a-bibliophile/)
-- [signs of a people pleaser](https://lifestyle.allwomenstalk.com/signs-you-are-a-people-pleaser-and-dont-know-it/)
-- [nonchalant](https://lifestyle.allwomenstalk.com/signs-of-a-selfish-person-that-you-should-pay-attention-to/)
 - [signs your boyfriend wants you to lose weight](https://diet.allwomenstalk.com/signs-your-friends-are-making-you-fat/)
-- [complete family drawing](https://parenting.allwomenstalk.com/ways-to-know-when-your-familys-complete/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 - [7 Clues You Are Ready for Marriage ...](https://allwomenstalk.com/7-clues-you-are-ready-for-marriage/)
 

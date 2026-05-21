@@ -3,7 +3,7 @@ title: "8 Weddings and One Bride: a Tribute to Elizabeth Taylor ..."
 description: "Elizabeth & Larry...; Liz & John...; Elizabeth & Eddie...; Liz & Michael Todd...; Elizabeth & Michael Wilding...; More ..."
 url: "https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/"
 category: "wedding"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 8 Weddings and One Bride: a Tribute to Elizabeth Taylor ...
@@ -71,16 +71,16 @@ Top Photo: [Glamour.com](https://www.glamour.com/story/the-many-wedding-dresses-
 
 ## Related Posts
 
-- [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
-- [4 Amazing Wedding Shots You Need to See](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
+- [unique centerpieces](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [pittsburgh steelers cake](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 - [wedding catastrophe](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
 - [colonial baptist church wintersville ohio](https://wedding.allwomenstalk.com/real-wedding-military-love-in-pittsburgh/)
-- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
-- [unique centerpieces](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
-- [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
 - [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
+- [4 Amazing Wedding Shots You Need to See](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
+- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
+- [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
+- [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
 - [5 Celebrity Weddings of Spring 2011 ...](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
 - [7 Celebrity Weddings to Watch for in 2011 ...](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
 

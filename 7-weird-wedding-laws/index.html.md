@@ -3,7 +3,7 @@ title: "7 Weird Wedding Laws"
 description: "The Malaysian No Toilet Rule; A Shotgun Wedding; The Talented Men of Illinois; Swedish Shoes That Pay for Themselves; French Chiverie or Just a Racket; More ..."
 url: "https://wedding.allwomenstalk.com/7-weird-wedding-laws/"
 category: "wedding"
-last_updated: "2026-05-19"
+last_updated: "2026-05-21"
 ---
 
 # 7 Weird Wedding Laws
@@ -44,16 +44,16 @@ Top Photo Credit: [Ryan Brenizer](https://www.flickr.com/photos/carpeicthus/2126
 
 ## Related Posts
 
-- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
-- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
-- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
-- [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
+- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
+- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [8 Advantages of a Winter Wedding](https://wedding.allwomenstalk.com/8-advantages-of-a-winter-wedding/)
+- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
+- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
 - [wedding stiletto heels](https://wedding.allwomenstalk.com/5-high-heels-to-spice-up-your-wedding/)
 - [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
-- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
-- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
 - [loreal smoky timeless spark](https://wedding.allwomenstalk.com/5-etsy-wedding-finds-for-the-non-diy-bride/)
+- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
+- [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
 - [8 Potential Wedding Disasters](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
 - [7 Wackiest Proposals Ever ...](https://wedding.allwomenstalk.com/7-wackiest-proposals-ever/)
 
