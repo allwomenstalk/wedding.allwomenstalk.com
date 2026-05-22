@@ -3,7 +3,7 @@ title: "5 Reasons Public Proposals Are a Bad Idea ..."
 description: "It Gives People a Chance to Judge You; It Creates an Awkward Situation; It Bothers a Lot of People; It Puts the Person in a Spotlight; It Really Doesn’t Give You a Chance to Talk about the Whole Life-Changing Situation; More ..."
 url: "https://wedding.allwomenstalk.com/reasons-public-proposals-are-a-bad-idea/"
 category: "wedding"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 5 Reasons Public Proposals Are a Bad Idea ...
@@ -45,15 +45,15 @@ Marriage is a serious thing. So think about it. Would you actually feel comforta
 ## Related Posts
 
 - [reasons not to adopt](https://parenting.allwomenstalk.com/wrong-reasons-to-consider-adopting-a-child/)
-- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
 - [what is a passenger princess](https://parenting.allwomenstalk.com/reasons-why-princess-syndrome-is-unhealthy/)
 - [never hold a grudge](https://inspiration.allwomenstalk.com/reasons-you-should-never-hold-a-grudge/)
-- [warning signs of a mamas boy](https://love.allwomenstalk.com/reasons-never-to-date-a-mommas-boy/)
-- [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
 - [you cant say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
-- [why looks shouldnt matter in a relationship](https://love.allwomenstalk.com/why-sexual-history-shouldnt-matter-in-a-new-relationship/)
-- [suicide is not an option](https://inspiration.allwomenstalk.com/why-suicide-is-not-an-option/)
+- [warning signs of a mamas boy](https://love.allwomenstalk.com/reasons-never-to-date-a-mommas-boy/)
 - [leggings thigh gap](https://fitness.allwomenstalk.com/why-you-shouldnt-worry-about-not-having-a-thigh-gap/)
+- [suicide is not an option](https://inspiration.allwomenstalk.com/why-suicide-is-not-an-option/)
+- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
+- [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
+- [why looks shouldnt matter in a relationship](https://love.allwomenstalk.com/why-sexual-history-shouldnt-matter-in-a-new-relationship/)
 - [7 Reasons Why Prenups Are a Bad Idea ...](https://wedding.allwomenstalk.com/7-reasons-why-prenups-are-a-bad-idea/)
 - [7 Reasons to Vote ...](https://lifestyle.allwomenstalk.com/reasons-to-vote/)
 

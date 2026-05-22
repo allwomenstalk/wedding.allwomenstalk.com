@@ -3,7 +3,7 @@ title: "17 of Todays Irresistible Wedding Inspo for Girls Who Cant Wait to Get M
 description: "@southernbridemagazine; @weddedwonderland; @weddingdream; @rockmywedding; @lovelybride; More ..."
 url: "https://wedding.allwomenstalk.com/of-todays-irresistible-wedding-inspo-for-girls-who-cant-wait-to-get-married/"
 category: "wedding"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 17 of Todays Irresistible Wedding Inspo for Girls Who Cant Wait to Get Married ...

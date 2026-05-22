@@ -3,7 +3,7 @@ title: "Get Hitched despite the Pandemic with a Virtual Wedding ..."
 description: "What is a Virtual Wedding?; What Are the Benefits?; Planning Tips; More ..."
 url: "https://wedding.allwomenstalk.com/get-hitched-despite-the-pandemic-with-a-virtual-wedding/"
 category: "wedding"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Get Hitched despite the Pandemic with a Virtual Wedding ...
@@ -39,13 +39,13 @@ They say nothing can stand in the way of true love. Why let a global pandemic be
 - [5 Things Every to-Be Bride Should Know before Her ...](https://allwomenstalk.com/things-every-to-be-bride-should-know-before-her-wedding/)
 - [wedding inspo](https://wedding.allwomenstalk.com/of-todays-brilliant-wedding-inspo-for-a-wedding-that-will-make-your-heart-swoon/)
 - [Renting a Wedding Tux](https://allwomenstalk.com/renting-a-wedding-tux/)
-- [Wedding Theme Idea: Scuba Wedding ...](https://allwomenstalk.com/wedding-theme-idea-scuba-wedding/)
+- [Wedding Theme Idea: Black and White](https://allwomenstalk.com/wedding-theme-idea-black-and-white/)
+- [wedding cake decorations](https://baking.allwomenstalk.com/wedding-cakes-decorations-ideas/)
 - [prom dress storage box](https://allwomenstalk.com/wedding-dresses-how-to-care-for-them/)
 - [Tips for the Encore Bride - Answered ...](https://allwomenstalk.com/tips-for-the-encore-bride-answered/)
-- [free wedding samples kits](https://allwomenstalk.com/wedding-freebies-invites-gift-boxes-samples/)
-- [wedding cake decorations](https://baking.allwomenstalk.com/wedding-cakes-decorations-ideas/)
-- [Wedding Theme Idea: Black and White](https://allwomenstalk.com/wedding-theme-idea-black-and-white/)
 - [Innovative Wedding Ring Tattoo Designs For Modern ...](https://bodyart.allwomenstalk.com/wedding-ring-tattoo-ideas/)
+- [Wedding Theme Idea: Scuba Wedding ...](https://allwomenstalk.com/wedding-theme-idea-scuba-wedding/)
+- [free wedding samples kits](https://allwomenstalk.com/wedding-freebies-invites-gift-boxes-samples/)
 - [So Youre Planning a Wedding](https://allwomenstalk.com/3-2/)
 - [Wedding Podcast Choosing the Photographer Thats Ri...](https://allwomenstalk.com/wedding-podcast-choosing-the-photographer-thats-right-for-you/)
 

@@ -3,7 +3,7 @@ title: "Sweet Ways to Honor Your Mom at Your Wedding Shell Love ..."
 description: "Choose Her Outfit; Wear Her Wedding Dress; Do Something Ceremonial; Have Her Walk You down the Aisle Too; A Twist to the Bouquet Toss; More ..."
 url: "https://wedding.allwomenstalk.com/sweet-ways-to-honor-your-mom-at-your-wedding-shell-love/"
 category: "wedding"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # Sweet Ways to Honor Your Mom at Your Wedding Shell Love ...

@@ -3,7 +3,7 @@ title: "7 Things to do if You Get Cold Feet before Your Wedding ..."
 description: "Realize You Are under a Lot of Pressure; Remember Special Moments; Remind Yourself of Your Feelings; Talk to a Trusted Friend or Family Member; Do Something Relaxing; More ..."
 url: "https://wedding.allwomenstalk.com/things-to-do-if-you-get-cold-feet-before-your-wedding/"
 category: "wedding"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Things to do if You Get Cold Feet before Your Wedding ...
@@ -43,15 +43,15 @@ Getting cold feet can be scary but it doesn’t necessarily mean you need to cal
 ## Related Posts
 
 - [how much did kim kardashians wedding cost](https://celebs.allwomenstalk.com/ridiculous-things-about-kim-kardashians-wedding/)
-- [creative bridal shower ideas](https://wedding.allwomenstalk.com/non-traditional-bridal-shower-ideas/)
-- [outdoor wedding flower decorations](https://wedding.allwomenstalk.com/stunning-wedding-flower-arrangements-to-inspire-you/)
-- [wedding photo shoots ideas](https://wedding.allwomenstalk.com/amazing-wedding-photography-ideas-to-copy/)
 - [barn wedding decorations ideas](https://wedding.allwomenstalk.com/gorgeous-decorating-ideas-for-a-barn-wedding/)
-- [couple poses for same height](https://wedding.allwomenstalk.com/easy-ways-to-look-good-in-your-engagement-photos/)
-- [thank you practical favors](https://wedding.allwomenstalk.com/practical-wedding-favors-your-guests-will-truly-use/)
 - [elegant blue cake](https://wedding.allwomenstalk.com/wedding-cakes-to-make-your-day-special/)
-- [wedding touch](https://wedding.allwomenstalk.com/ways-to-add-a-meaningful-touch-to-your-wedding/)
 - [sabotage wedding](https://wedding.allwomenstalk.com/ways-you-may-sabotage-your-wedding/)
+- [wedding photo shoots ideas](https://wedding.allwomenstalk.com/amazing-wedding-photography-ideas-to-copy/)
+- [thank you practical favors](https://wedding.allwomenstalk.com/practical-wedding-favors-your-guests-will-truly-use/)
+- [outdoor wedding flower decorations](https://wedding.allwomenstalk.com/stunning-wedding-flower-arrangements-to-inspire-you/)
+- [couple poses for same height](https://wedding.allwomenstalk.com/easy-ways-to-look-good-in-your-engagement-photos/)
+- [creative bridal shower ideas](https://wedding.allwomenstalk.com/non-traditional-bridal-shower-ideas/)
+- [wedding touch](https://wedding.allwomenstalk.com/ways-to-add-a-meaningful-touch-to-your-wedding/)
 - [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
 - [10 Things to do before You Get Married ...](https://allwomenstalk.com/10-things-to-do-before-you-get-married/)
 

@@ -3,7 +3,7 @@ title: "7 Times when You Should Consider Returning Your Wedding Gifts ..."
 description: "You Have Duplicates; You Really Hate It; It Doesn’t Go with Anything; It Isn’t Practical; You Have Something Very Similar; More ..."
 url: "https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/"
 category: "wedding"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 7 Times when You Should Consider Returning Your Wedding Gifts ...
@@ -42,15 +42,15 @@ These are 7 times when you may want to choose to return a wedding gift. What oth
 
 ## Related Posts
 
+- [unconventional wedding venues](https://wedding.allwomenstalk.com/unconventional-wedding-venues-that-are-absolutely-beautiful/)
+- [the week before the wedding](https://wedding.allwomenstalk.com/things-you-should-do-the-week-before-your-wedding/)
 - [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
+- [wedding dress shopping mistakes](https://wedding.allwomenstalk.com/common-wedding-dress-shopping-mistakes-to-stay-away-from/)
+- [best dance moves to break out at a wedding](https://wedding.allwomenstalk.com/best-wedding-dance-videos/)
+- [wedding shape](https://fitness.allwomenstalk.com/easy-ways-to-shape-up-for-your-wedding-day/)
 - [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
 - [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
-- [unconventional wedding venues](https://wedding.allwomenstalk.com/unconventional-wedding-venues-that-are-absolutely-beautiful/)
-- [wedding dress shopping mistakes](https://wedding.allwomenstalk.com/common-wedding-dress-shopping-mistakes-to-stay-away-from/)
-- [the week before the wedding](https://wedding.allwomenstalk.com/things-you-should-do-the-week-before-your-wedding/)
-- [wedding shape](https://fitness.allwomenstalk.com/easy-ways-to-shape-up-for-your-wedding-day/)
 - [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
-- [best dance moves to break out at a wedding](https://wedding.allwomenstalk.com/best-wedding-dance-videos/)
 - [divergent theme](https://wedding.allwomenstalk.com/ways-to-have-a-divergent-themed-wedding/)
 - [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
 - [6 Classic Wedding Gift Ideas You Cant Go Wrong wit...](https://wedding.allwomenstalk.com/classic-wedding-gift-ideas-you-cant-go-wrong-with/)
