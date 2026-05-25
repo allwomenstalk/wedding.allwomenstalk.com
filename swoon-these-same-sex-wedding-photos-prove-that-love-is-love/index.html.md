@@ -3,7 +3,7 @@ title: "Swoon! These 27 Same-sex Wedding Photos Prove That Love is Love ..."
 description: "Federica & Giulia; Mrs. & Mrs; Bicycle Built for 2; Black and White; The Great Outdoors; More ..."
 url: "https://wedding.allwomenstalk.com/swoon-these-same-sex-wedding-photos-prove-that-love-is-love/"
 category: "wedding"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Swoon! These 27 Same\-sex Wedding Photos Prove That Love is Love ...
@@ -144,16 +144,16 @@ Source: [Dressing the Grooms Same Sex](https://web.archive.org/web/http://www.sc
 
 ## Related Posts
 
-- [angled cut](https://hair.allwomenstalk.com/married-to-the-bob-variations-on-the-classic-cut/)
-- [watch muriels wedding online free](https://movies.allwomenstalk.com/wedding-movies-thatll-make-you-yearn-for-the-big-day/)
-- [indian wedding girl photo](https://wedding.allwomenstalk.com/how-to-prep-if-invited-to-an-indian-wedding/)
 - [tall groom short bride](https://wedding.allwomenstalk.com/these-are-the-must-take-photos-of-your-wedding-dress/)
 - [aita for outshining the bride](https://wedding.allwomenstalk.com/how-to-look-your-best-at-a-wedding-without-overshadowing-the-bride/)
-- [engagement phases](https://wedding.allwomenstalk.com/experiences-you-go-through-when-you-get-engaged/)
-- [kid from wedding crashers](https://wedding.allwomenstalk.com/steal-these-wedding-ideas-from-your-favorite-movies/)
 - [masculine wedding cakes](https://wedding.allwomenstalk.com/unusual-wedding-cakes-that-you-have-to-see-to-believe/)
+- [engagement phases](https://wedding.allwomenstalk.com/experiences-you-go-through-when-you-get-engaged/)
+- [angled cut](https://hair.allwomenstalk.com/married-to-the-bob-variations-on-the-classic-cut/)
 - [7 Things to Ask Your Fianc before Setting a Weddin...](https://wedding.allwomenstalk.com/ask-your-fiance-these-things-before-you-set-the-date/)
+- [watch muriels wedding online free](https://movies.allwomenstalk.com/wedding-movies-thatll-make-you-yearn-for-the-big-day/)
+- [indian wedding girl photo](https://wedding.allwomenstalk.com/how-to-prep-if-invited-to-an-indian-wedding/)
 - [celebrity rehearsal dinner dress](https://wedding.allwomenstalk.com/overly-elaborate-and-expensive-celebrity-weddings/)
+- [kid from wedding crashers](https://wedding.allwomenstalk.com/steal-these-wedding-ideas-from-your-favorite-movies/)
 - [3 Amazing Offbeat Weddings ...](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 - [Real Wedding: Sweethearts in San Francisco ...](https://wedding.allwomenstalk.com/real-wedding-sweethearts-in-san-francisco/)
 

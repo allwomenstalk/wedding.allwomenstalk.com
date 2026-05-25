@@ -3,7 +3,7 @@ title: "7 Interesting Non-Cake Wedding Cake Ideas ..."
 description: "Rice Krispie Treat Wedding Cake...; Welsh Cakes...; Homemade Pie...; Macaron Tower...; Donut Stand...; More ..."
 url: "https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/"
 category: "wedding"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 Interesting Non\-Cake Wedding Cake Ideas ...
@@ -58,7 +58,7 @@ Who needs an entire cake when you can have cake pops! This trend has been seen a
 
 Photo Credit: [Tealily Photography](https://tealilyphotography.com/) via [Ruffled Blog](https://ruffledblog.com/handmade-sydney-wedding/)
 
-Croquembouche, just like the macaron, is a [french dessert](https://food.allwomenstalk.com/french-pastries-to-try-in-paris/) that is trending in the states. It's basically a tower of cream puffs drizzled with caramel or spun sugar, and can be decorated with almonds, fondant cut-outs, or even chocolate. This beautiful treat is a creative idea for a non-cake wedding cake and would look very festive for a Christmas or a winter holiday themed wedding.
+Croquembouche, just like the macaron, is a french dessert that is trending in the states. It's basically a tower of cream puffs drizzled with caramel or spun sugar, and can be decorated with almonds, fondant cut-outs, or even chocolate. This beautiful treat is a creative idea for a non-cake wedding cake and would look very festive for a Christmas or a winter holiday themed wedding.
 
 Whether you want to replace your wedding cake with these non-cake alternatives or you want to add them along side of it, remember to be quirky and make everyone remember your wedding for all of the amazing details including your non-cake wedding cake! If it's a cookie non-cake wedding cake that you want, go for it and don't worry about what everyone will think when you don't have the traditional wedding cake. This day is about you and your spouse, choose details that speak of who you are and what you like.
 
@@ -66,16 +66,16 @@ Whether you want to replace your wedding cake with these non-cake alternatives o
 
 ## Related Posts
 
-- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
-- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
-- [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
 - [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
-- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
 - [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
-- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
 - [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
+- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
+- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
+- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
 - [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
+- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
+- [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 

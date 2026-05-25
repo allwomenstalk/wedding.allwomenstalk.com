@@ -3,7 +3,7 @@ title: "7 of My Favorite Bridezillas from TV ..."
 description: "Melissa Brown; Kirsten Stiff Walker; Karen Refaeli; Courtney Cray; Shandra; More ..."
 url: "https://wedding.allwomenstalk.com/7-of-my-favorite-bridezillas-from-tv/"
 category: "wedding"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 7 of My Favorite Bridezillas from TV ...
@@ -44,16 +44,16 @@ Top Photo Credit: [ElizabethAnneDesigns](https://elizabethannedesigns.com/2009/0
 
 ## Related Posts
 
-- [5 Monsters of the Deep ...](https://twilight.allwomenstalk.com/5-monsters-of-the-deep/)
-- [hot vampire series](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
-- [villains in twilight](https://twilight.allwomenstalk.com/5-villains-from-twilight/)
-- [7 Legends about New England ...](https://travel.allwomenstalk.com/7-legends-about-new-england/)
-- [amazing mazes](https://travel.allwomenstalk.com/amazing-mazes/)
-- [vampire confessions](https://twilight.allwomenstalk.com/5-confessions-of-a-vampire/)
 - [5 Things That Could Happen on 2012 ...](https://twilight.allwomenstalk.com/things-that-could-happen-on/)
-- [Breaking Dawn Will Officially Be in 2 Parts ...](https://twilight.allwomenstalk.com/breaking-dawn-will-officially-be-in-2-parts/)
 - [evil magic users](https://twilight.allwomenstalk.com/5-evil-magic-users-to-be/)
+- [villains in twilight](https://twilight.allwomenstalk.com/5-villains-from-twilight/)
+- [5 Monsters of the Deep ...](https://twilight.allwomenstalk.com/5-monsters-of-the-deep/)
+- [vampire confessions](https://twilight.allwomenstalk.com/5-confessions-of-a-vampire/)
+- [hot vampire series](https://twilight.allwomenstalk.com/5-hot-vampire-guys-from-the-twilight-series/)
+- [Breaking Dawn Will Officially Be in 2 Parts ...](https://twilight.allwomenstalk.com/breaking-dawn-will-officially-be-in-2-parts/)
+- [amazing mazes](https://travel.allwomenstalk.com/amazing-mazes/)
 - [food shows on travel channel](https://travel.allwomenstalk.com/7-travel-channel-shows-i-inexplicably-love/)
+- [7 Legends about New England ...](https://travel.allwomenstalk.com/7-legends-about-new-england/)
 - [10 Stunning Leading Ladies ...](https://movies.allwomenstalk.com/stunning-leading-ladies/)
 - [7 of My Favorite Celebrities ...](https://celebs.allwomenstalk.com/7-of-my-favorite-celebrities/)
 

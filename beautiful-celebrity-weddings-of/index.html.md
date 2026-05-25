@@ -3,7 +3,7 @@ title: "9 Beautiful Celebrity Weddings of 2013 ..."
 description: "Chris Kirkpatrick; Megan Hilty; Danielle Fishel; Rider Strong; Kelly Clarkson; More ..."
 url: "https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/"
 category: "wedding"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 9 Beautiful Celebrity Weddings of 2013 ...
@@ -68,16 +68,16 @@ Which celebrity wedding of 2013 was your favorite? Will any of the gowns inspire
 
 ## Related Posts
 
-- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
-- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
-- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
-- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
-- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
-- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
+- [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
+- [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
 - [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
+- [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
+- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
+- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
 - [5 Celebrity Weddings of Spring 2011 ...](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
 - [9 Fabulous  Inspiring Wedding Songs of 2011 ...](https://wedding.allwomenstalk.com/fabulous-inspiring-wedding-songs-of/)
 
