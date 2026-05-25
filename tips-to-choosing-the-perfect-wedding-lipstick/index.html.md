@@ -42,16 +42,16 @@ Choosing the perfect lipstick is something that requires some careful thought. W
 
 ## Related Posts
 
-- [The Best Nude Lipstick for Every Skin Type ...](https://makeup.allwomenstalk.com/the-best-nude-lipstick-for-every-skin-type/)
-- [wear red lipstick](https://makeup.allwomenstalk.com/tips-to-follow-when-wearing-red-lipstick/)
-- [how to pick red lipstick for your skin tone](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-shade-of-red-lipstick/)
-- [lipstick for summer 2014](https://makeup.allwomenstalk.com/lipstick-colours-for-summer/)
 - [claire danes makeup](https://makeup.allwomenstalk.com/steal-her-look-the-sultry-lipsticks-all-the-stars-are-wearing/)
-- [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
-- [how often should i exfoliate my lips](https://skincare.allwomenstalk.com/yummy-things-you-can-use-to-exfoliate-your-lips/)
-- [no 7 cream blush](https://makeup.allwomenstalk.com/of-the-cheekiest-cream-blushes-for-a-rosy-glow/)
 - [gorgeous lipstick](https://makeup.allwomenstalk.com/gorgeous-lipstick-colors-for-fall/)
+- [The Best Nude Lipstick for Every Skin Type ...](https://makeup.allwomenstalk.com/the-best-nude-lipstick-for-every-skin-type/)
+- [no 7 cream blush](https://makeup.allwomenstalk.com/of-the-cheekiest-cream-blushes-for-a-rosy-glow/)
+- [how to pick red lipstick for your skin tone](https://makeup.allwomenstalk.com/tips-for-choosing-the-right-shade-of-red-lipstick/)
 - [paris color riche le smoky shadow primped previous](https://makeup.allwomenstalk.com/celeb-makeup-artists-spill-on-their-fave-fall-lipsticks/)
+- [best lipstick shade for pale skin](https://makeup.allwomenstalk.com/beautiful-fall-lipstick-shades-for-pale-skin/)
+- [wear red lipstick](https://makeup.allwomenstalk.com/tips-to-follow-when-wearing-red-lipstick/)
+- [lipstick for summer 2014](https://makeup.allwomenstalk.com/lipstick-colours-for-summer/)
+- [how often should i exfoliate my lips](https://skincare.allwomenstalk.com/yummy-things-you-can-use-to-exfoliate-your-lips/)
 - [7 Tips to Pulling off Red Lipstick ...](https://makeup.allwomenstalk.com/7-tips-to-pulling-off-red-lipstick/)
 - [7 Tips for a Great Lip Stain ...](https://makeup.allwomenstalk.com/tips-for-a-great-lip-stain/)
 

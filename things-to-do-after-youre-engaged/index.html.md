@@ -46,16 +46,16 @@ The key is to start planning a wedding as early as possible. It will definitely 
 
 ## Related Posts
 
-- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
 - [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
-- [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
-- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
-- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
-- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
-- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
 - [vegas wedding inspo](https://wedding.allwomenstalk.com/fun-ideas-for-a-sparkly-wedding-theme/)
 - [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
+- [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
+- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
+- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
 - [wedding songs 2014](https://wedding.allwomenstalk.com/of-the-most-annoying-wedding-songs-ever/)
+- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
+- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
+- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
 - [10 Things Every Bridesmaid Should do ...](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
 - [7 Things to do at a Bachelorette Party ...](https://wedding.allwomenstalk.com/7-things-to-do-at-a-bachelorette-party/)
 

@@ -42,16 +42,16 @@ Do you have any other helpful tips for writing wedding thank you notes? Have you
 
 ## Related Posts
 
-- [wedding planning tips no one tells you](https://wedding.allwomenstalk.com/wedding-planning-blunders-of-all-time/)
-- [8 Ways to Pimp up Your Honeymoon ...](https://wedding.allwomenstalk.com/ways-to-pimp-up-your-honeymoon/)
-- [wedding weekend activities](https://wedding.allwomenstalk.com/wedding-weekend-events-that-will-make-the-fun-last/)
-- [10 Fun Monogrammed Wedding Items ...](https://wedding.allwomenstalk.com/fun-monogrammed-wedding-items/)
 - [7 Fun Ways to Entertain Your Wedding Guests ...](https://wedding.allwomenstalk.com/fun-ways-to-entertain-your-wedding-guests/)
-- [7 Simple Ways to Cut down Your Wedding Expenses .....](https://wedding.allwomenstalk.com/simple-ways-to-cut-down-your-wedding-expenses/)
+- [10 Fun Monogrammed Wedding Items ...](https://wedding.allwomenstalk.com/fun-monogrammed-wedding-items/)
+- [wedding weekend activities](https://wedding.allwomenstalk.com/wedding-weekend-events-that-will-make-the-fun-last/)
+- [7 Things to Consider when Picking a Wedding Venue ...](https://wedding.allwomenstalk.com/things-to-consider-when-picking-a-wedding-venue/)
 - [7 Super Fabulous Wedding Blogs That You Will Fall ...](https://wedding.allwomenstalk.com/super-fabulous-wedding-blogs-that-you-will-fall-in-love-with/)
+- [8 Ways to Pimp up Your Honeymoon ...](https://wedding.allwomenstalk.com/ways-to-pimp-up-your-honeymoon/)
+- [7 Simple Ways to Cut down Your Wedding Expenses .....](https://wedding.allwomenstalk.com/simple-ways-to-cut-down-your-wedding-expenses/)
 - [8 Creative Ways to Remember Your Wedding ...](https://wedding.allwomenstalk.com/creative-ways-to-remember-your-wedding/)
 - [how to write a good toast](https://wedding.allwomenstalk.com/amazing-tips-for-writing-a-wedding-toast/)
-- [7 Things to Consider when Picking a Wedding Venue ...](https://wedding.allwomenstalk.com/things-to-consider-when-picking-a-wedding-venue/)
+- [wedding planning tips no one tells you](https://wedding.allwomenstalk.com/wedding-planning-blunders-of-all-time/)
 - [7 Tips for Writing an Awesome Wedding Toast ...](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 

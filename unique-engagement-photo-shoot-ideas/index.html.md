@@ -56,16 +56,16 @@ Taking your engagement photos is one of the most exciting parts about getting ma
 
 ## Related Posts
 
+- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
+- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
+- [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
+- [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
+- [wedding reception music](https://wedding.allwomenstalk.com/tips-for-putting-together-your-wedding-reception-playlist/)
 - [what is 40 year anniversary](https://wedding.allwomenstalk.com/special-wedding-anniversaries-and-what-to-buy/)
 - [unique elopement ideas](https://wedding.allwomenstalk.com/unusual-places-to-elope-when-you-cant-stand-planning-a-wedding/)
 - [how to pose in wedding photos](https://wedding.allwomenstalk.com/touching-poses-for-mother-daughter-wedding-photos/)
-- [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
-- [wedding reception music](https://wedding.allwomenstalk.com/tips-for-putting-together-your-wedding-reception-playlist/)
-- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
-- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
-- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
 - [wedding ben rector](https://music.allwomenstalk.com/unique-songs-to-play-on-your-wedding-day/)
-- [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
+- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 

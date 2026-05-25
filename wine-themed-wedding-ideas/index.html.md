@@ -57,15 +57,15 @@ Are you planning a wine-themed wedding? Which fun ideas are at the top of your l
 ## Related Posts
 
 - [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
-- [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
 - [pinterest wedding dresses for bridesmaids](https://wedding.allwomenstalk.com/tips-on-how-to-use-pinterest-for-wedding-planning/)
 - [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
-- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
-- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
-- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
 - [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
+- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
+- [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
+- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
 - [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
+- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [7 Fantastic Winter Wedding Ideas ...](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
 

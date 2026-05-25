@@ -42,15 +42,15 @@ Now that you’ve read my suggestions about what to bring to your wedding dress 
 
 ## Related Posts
 
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
+- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
 - [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
-- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
-- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
+- [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
+- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
 - [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
 - [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
-- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
-- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
-- [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
+- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
+- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
 - [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
 - [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 - [7 Tips to Stay Calm on Your Wedding Day ...](https://love.allwomenstalk.com/tips-to-stay-calm-on-your-wedding-day/)

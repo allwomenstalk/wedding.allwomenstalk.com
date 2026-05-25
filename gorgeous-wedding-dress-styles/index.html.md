@@ -108,16 +108,16 @@ An overlay dress describes a thin piece of fabric over the top of the main fabri
 
 ## Related Posts
 
-- [dress shape guide](https://wedding.allwomenstalk.com/a-complete-guide-for-brides-to-be-to-pick-the-right-dress-for-their-shape/)
-- [cheap colored wedding dresses](https://wedding.allwomenstalk.com/colorful-wedding-dresses-for-girls-who-dont-like-white/)
-- [dresses throughout the years](https://wedding.allwomenstalk.com/iconic-wedding-dresses-women-have-lusted-after-through-the-decades/)
-- [maxi for girls](https://fashion.allwomenstalk.com/maxi-dress-styling-tips-for-short-women/)
-- [red dress model](https://fashion.allwomenstalk.com/how-to-wear-a-red-dress-like-a-model/)
-- [jasmine disney wedding dress](https://wedding.allwomenstalk.com/the-top-disney-princess-inspired-wedding-dresses-for-spring-2-0-1-7/)
-- [two pieces gown](https://fashion.allwomenstalk.com/stunning-two-piece-prom-dresses-you-must-see-now/)
-- [swoon worthy bridal](https://wedding.allwomenstalk.com/swoon-worthy-indian-wedding-dresses-you-need-to-see-to-believe/)
-- [plus size halloween costumes for couples](https://lifestyle.allwomenstalk.com/flattering-halloween-costumes-for-plus-size-women/)
 - [sharon stone turtleneck](https://fashion.allwomenstalk.com/dresses-throughout-history-that-have-caused-timeless-scandals/)
+- [jasmine disney wedding dress](https://wedding.allwomenstalk.com/the-top-disney-princess-inspired-wedding-dresses-for-spring-2-0-1-7/)
+- [maxi for girls](https://fashion.allwomenstalk.com/maxi-dress-styling-tips-for-short-women/)
+- [dress shape guide](https://wedding.allwomenstalk.com/a-complete-guide-for-brides-to-be-to-pick-the-right-dress-for-their-shape/)
+- [two pieces gown](https://fashion.allwomenstalk.com/stunning-two-piece-prom-dresses-you-must-see-now/)
+- [plus size halloween costumes for couples](https://lifestyle.allwomenstalk.com/flattering-halloween-costumes-for-plus-size-women/)
+- [dresses throughout the years](https://wedding.allwomenstalk.com/iconic-wedding-dresses-women-have-lusted-after-through-the-decades/)
+- [cheap colored wedding dresses](https://wedding.allwomenstalk.com/colorful-wedding-dresses-for-girls-who-dont-like-white/)
+- [swoon worthy bridal](https://wedding.allwomenstalk.com/swoon-worthy-indian-wedding-dresses-you-need-to-see-to-believe/)
+- [red dress model](https://fashion.allwomenstalk.com/how-to-wear-a-red-dress-like-a-model/)
 - [6 Wedding Dresses for Every Brides Beautiful Body ...](https://wedding.allwomenstalk.com/6-wedding-dresses-for-every-brides-beautiful-body/)
 - [8 Gorgeous Wedding Veils ...](https://wedding.allwomenstalk.com/8-gorgeous-wedding-veils/)
 

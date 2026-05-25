@@ -42,16 +42,16 @@ Who among you got married in December? Who plans to get married in December?
 
 ## Related Posts
 
-- [christmas fireworks hong kong](https://travel.allwomenstalk.com/reasons-to-visit-hong-kong-disneyland-at-christmas/)
-- [looking forward to new year](https://inspiration.allwomenstalk.com/reasons-to-look-forward-to-january/)
-- [is technology a blessing or curse](https://lifestyle.allwomenstalk.com/reasons-technology-is-both-a-blessing-and-a-curse/)
-- [house party new years](https://lifestyle.allwomenstalk.com/reasons-to-have-a-house-party-on-new-years-eve/)
-- [why 2015 was the best year](https://inspiration.allwomenstalk.com/reasons-why-will-be-a-great-year/)
+- [cultural exchange programs](https://travel.allwomenstalk.com/reasons-to-participate-in-an-exchange-program/)
+- [early december meaning](https://lifestyle.allwomenstalk.com/reasons-december-is-the-best-month-of-the-year/)
 - [should i have a personal website](https://apps.allwomenstalk.com/reasons-to-have-a-personal-website/)
 - [guest experience lead](https://money.allwomenstalk.com/reasons-to-take-a-lower-paying-job/)
-- [cultural exchange programs](https://travel.allwomenstalk.com/reasons-to-participate-in-an-exchange-program/)
+- [house party new years](https://lifestyle.allwomenstalk.com/reasons-to-have-a-house-party-on-new-years-eve/)
+- [is technology a blessing or curse](https://lifestyle.allwomenstalk.com/reasons-technology-is-both-a-blessing-and-a-curse/)
+- [why 2015 was the best year](https://inspiration.allwomenstalk.com/reasons-why-will-be-a-great-year/)
+- [christmas fireworks hong kong](https://travel.allwomenstalk.com/reasons-to-visit-hong-kong-disneyland-at-christmas/)
+- [looking forward to new year](https://inspiration.allwomenstalk.com/reasons-to-look-forward-to-january/)
 - [benefits of small town living](https://lifestyle.allwomenstalk.com/benefits-of-living-in-a-small-city/)
-- [early december meaning](https://lifestyle.allwomenstalk.com/reasons-december-is-the-best-month-of-the-year/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 - [5 Reasons to Have Kids in Your Wedding ...](https://allwomenstalk.com/5-reasons-to-have-kids-in-your-wedding/)
 

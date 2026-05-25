@@ -56,16 +56,16 @@ What are some of your favorite wedding memorial ideas? How are you planning to h
 
 ## Related Posts
 
-- [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
-- [7 ways to honor your mother](https://wedding.allwomenstalk.com/special-ways-to-honor-mom-at-your-wedding/)
-- [what is bride garter](https://wedding.allwomenstalk.com/creative-wedding-garter-ideas/)
-- [unique save the date ideas](https://wedding.allwomenstalk.com/creative-save-the-date-ideas/)
-- [deco table gatsby](https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/)
 - [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
-- [ways to display photos at wedding](https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/)
-- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
+- [what is bride garter](https://wedding.allwomenstalk.com/creative-wedding-garter-ideas/)
+- [7 ways to honor your mother](https://wedding.allwomenstalk.com/special-ways-to-honor-mom-at-your-wedding/)
+- [unique save the date ideas](https://wedding.allwomenstalk.com/creative-save-the-date-ideas/)
 - [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
 - [hot wedding photo](https://wedding.allwomenstalk.com/hot-wedding-photography-trends-for/)
+- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [ways to display photos at wedding](https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/)
+- [deco table gatsby](https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [7 Adorable save the Date Ideas ...](https://wedding.allwomenstalk.com/adorable-save-the-date-ideas/)
 

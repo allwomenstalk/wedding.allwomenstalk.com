@@ -42,16 +42,16 @@ Remember that it can be very easy to confuse excitement and anxiety with wedding
 
 ## Related Posts
 
-- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
-- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
 - [all white wedding ideas](https://wedding.allwomenstalk.com/wedding-themes-that-everyone-will-love/)
-- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
-- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
 - [best gift for friends wedding female](https://wedding.allwomenstalk.com/wedding-gifts-for-your-best-friends/)
+- [memorial table ideas](https://wedding.allwomenstalk.com/heartfelt-wedding-memorial-ideas/)
+- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
+- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
+- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
 - [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
 - [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
 - [wedding escort card ideas](https://wedding.allwomenstalk.com/unique-wedding-escort-card-ideas/)
-- [memorial table ideas](https://wedding.allwomenstalk.com/heartfelt-wedding-memorial-ideas/)
+- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 

@@ -48,16 +48,16 @@ Top Photo Credit: [L. Ryan Riley](https://www.flickr.com/photos/ryanrileyphotogr
 
 ## Related Posts
 
-- [7 Tips on Planning a Great Bridal Shower ...](https://wedding.allwomenstalk.com/tips-on-planning-a-great-bridal-shower/)
-- [honeymoon in jamaica](https://wedding.allwomenstalk.com/a-tropical-paradise-honeymoon-in-jamaica-guest-blogger-alicia-the-charity-wedding/)
-- [DIY Wedding Ideas on a Budget: Guest Blogger Poppi...](https://wedding.allwomenstalk.com/diy-wedding-ideas-on-a-budget-guest-blogger-poppies-sunshine/)
 - [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
-- [bridesmaids with fans](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
 - [grey and purple wedding](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
-- [green themed wedding](https://wedding.allwomenstalk.com/7-ways-to-celebrate-an-irish-themed-wedding/)
 - [4 Ways to Mix up the Colors for Your Wedding ...](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)
-- [bhldn table number holder](https://wedding.allwomenstalk.com/wedding-decorating-accessories-i-love-from-bhldn/)
+- [honeymoon in jamaica](https://wedding.allwomenstalk.com/a-tropical-paradise-honeymoon-in-jamaica-guest-blogger-alicia-the-charity-wedding/)
 - [Real Wedding: Handmade with Love ...](https://wedding.allwomenstalk.com/real-wedding-handmade-with-love/)
+- [green themed wedding](https://wedding.allwomenstalk.com/7-ways-to-celebrate-an-irish-themed-wedding/)
+- [bridesmaids with fans](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
+- [DIY Wedding Ideas on a Budget: Guest Blogger Poppi...](https://wedding.allwomenstalk.com/diy-wedding-ideas-on-a-budget-guest-blogger-poppies-sunshine/)
+- [7 Tips on Planning a Great Bridal Shower ...](https://wedding.allwomenstalk.com/tips-on-planning-a-great-bridal-shower/)
+- [bhldn table number holder](https://wedding.allwomenstalk.com/wedding-decorating-accessories-i-love-from-bhldn/)
 - [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
 - [8 Potential Wedding Disasters](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
 

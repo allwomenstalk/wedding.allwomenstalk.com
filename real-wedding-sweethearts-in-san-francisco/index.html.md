@@ -82,16 +82,16 @@ Groom's Suit Pant: [Jcrew](https://goo.gl/LqzGHZ)
 
 ## Related Posts
 
-- [money saving tips for wedding](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
-- [chandeliers wedding](https://wedding.allwomenstalk.com/4-ways-to-shine-with-wedding-chandeliers/)
 - [city chic garden city](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-city-chic/)
-- [bridesmaid job](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
-- [late night bites wedding](https://wedding.allwomenstalk.com/late-night-wedding-reception-snacks/)
 - [boudoir photos for groom](https://wedding.allwomenstalk.com/5-classy-boudoir-photos-to-surprise-your-groom-with/)
-- [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
-- [4 Ways to Spread the Love on Your Wedding Day ...](https://wedding.allwomenstalk.com/ways-to-spread-the-love-on-your-wedding-day/)
+- [late night bites wedding](https://wedding.allwomenstalk.com/late-night-wedding-reception-snacks/)
 - [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
+- [chandeliers wedding](https://wedding.allwomenstalk.com/4-ways-to-shine-with-wedding-chandeliers/)
+- [money saving tips for wedding](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
+- [4 Ways to Spread the Love on Your Wedding Day ...](https://wedding.allwomenstalk.com/ways-to-spread-the-love-on-your-wedding-day/)
+- [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
 - [summer beach wedding colors](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
+- [bridesmaid job](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
 - [Real Wedding: Sweethearts in San Francisco ...](https://wedding.allwomenstalk.com/real-wedding-sweethearts-in-san-francisco/)
 - [Real Wedding: Playful  Romantic in Sacramento ...](https://wedding.allwomenstalk.com/real-wedding-playful-romantic-in-sacramento/)
 

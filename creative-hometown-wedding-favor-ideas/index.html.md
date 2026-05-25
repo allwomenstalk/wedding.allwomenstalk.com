@@ -70,16 +70,16 @@ If you are homesick and planning a wedding in your new hometown, these **wedding
 
 ## Related Posts
 
-- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
+- [emerald green theme wedding](https://wedding.allwomenstalk.com/ideas-for-an-emerald-themed-wedding/)
 - [how to add personal touches to your wedding](https://wedding.allwomenstalk.com/ways-to-add-personal-touches-to-your-wedding/)
-- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
+- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
+- [renew of vows](https://wedding.allwomenstalk.com/fun-ideas-for-renewing-your-vows/)
 - [vegas wedding inspo](https://wedding.allwomenstalk.com/fun-ideas-for-a-sparkly-wedding-theme/)
 - [wedding songs 2014](https://wedding.allwomenstalk.com/of-the-most-annoying-wedding-songs-ever/)
-- [renew of vows](https://wedding.allwomenstalk.com/fun-ideas-for-renewing-your-vows/)
-- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
-- [emerald green theme wedding](https://wedding.allwomenstalk.com/ideas-for-an-emerald-themed-wedding/)
-- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
 - [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
+- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
+- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
+- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 

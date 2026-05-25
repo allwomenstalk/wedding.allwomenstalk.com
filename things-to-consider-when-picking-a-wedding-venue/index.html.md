@@ -42,16 +42,16 @@ Heather and I really lucked out as we were picking a wedding venue. We were both
 
 ## Related Posts
 
-- [amazing.maiid](https://wedding.allwomenstalk.com/great-ways-to-be-an-amazing-maid-of-honor/)
 - [wedding weekend activities](https://wedding.allwomenstalk.com/wedding-weekend-events-that-will-make-the-fun-last/)
-- [how to write a good toast](https://wedding.allwomenstalk.com/amazing-tips-for-writing-a-wedding-toast/)
+- [7 Great Reasons to Plan a Destination Wedding ...](https://wedding.allwomenstalk.com/great-reasons-to-plan-a-destination-wedding/)
+- [amazing.maiid](https://wedding.allwomenstalk.com/great-ways-to-be-an-amazing-maid-of-honor/)
+- [city hall wedding ideas](https://wedding.allwomenstalk.com/magnificent-ideas-for-a-city-hall-wedding/)
 - [things to think about when planning a wedding](https://wedding.allwomenstalk.com/things-to-think-about-before-planning-a-wedding/)
+- [9 Ways to Avoid Post-wedding Blues ...](https://wedding.allwomenstalk.com/ways-to-avoid-post-wedding-blues/)
+- [7 Super Fabulous Wedding Blogs That You Will Fall ...](https://wedding.allwomenstalk.com/super-fabulous-wedding-blogs-that-you-will-fall-in-love-with/)
+- [how to write a good toast](https://wedding.allwomenstalk.com/amazing-tips-for-writing-a-wedding-toast/)
 - [reasons to elope](https://wedding.allwomenstalk.com/best-reasons-to-elope/)
 - [the monument seating chart](https://wedding.allwomenstalk.com/helpful-tips-on-how-to-make-a-seating-chart-for-your-wedding/)
-- [city hall wedding ideas](https://wedding.allwomenstalk.com/magnificent-ideas-for-a-city-hall-wedding/)
-- [7 Great Reasons to Plan a Destination Wedding ...](https://wedding.allwomenstalk.com/great-reasons-to-plan-a-destination-wedding/)
-- [7 Super Fabulous Wedding Blogs That You Will Fall ...](https://wedding.allwomenstalk.com/super-fabulous-wedding-blogs-that-you-will-fall-in-love-with/)
-- [9 Ways to Avoid Post-wedding Blues ...](https://wedding.allwomenstalk.com/ways-to-avoid-post-wedding-blues/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 - [7 Things to Think about when Choosing Your Wedding...](https://wedding.allwomenstalk.com/7-things-to-think-about-when-choosing-your-wedding-photographer/)
 

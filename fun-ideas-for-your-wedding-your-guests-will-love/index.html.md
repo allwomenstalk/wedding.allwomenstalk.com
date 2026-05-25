@@ -56,16 +56,16 @@ These are 7 things you can do to make your wedding more fun but there are certai
 
 ## Related Posts
 
-- [thats what friends are for bridesmaids](https://wedding.allwomenstalk.com/ways-to-stay-friends-with-your-bridesmaids-after-the-wedding/)
-- [a wedding toast](https://wedding.allwomenstalk.com/short-and-sweet-quotes-to-use-for-a-wedding-toast/)
-- [paris color riche stylo eye violet amour](https://wedding.allwomenstalk.com/reasons-to-choose-black-and-white-wedding-photos/)
-- [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
-- [bride and dad](https://wedding.allwomenstalk.com/dads-wedding-surprise-makes-bride-and-groom-break-down-in-tears/)
-- [how to decline wedding invite](https://wedding.allwomenstalk.com/tips-on-how-to-say-no-to-unwanted-help-during-the-wedding-planning/)
 - [southern flair](https://wedding.allwomenstalk.com/ways-to-give-your-wedding-some-sassy-southern-flair/)
-- [bridesmaid bouquets fall](https://wedding.allwomenstalk.com/stunning-fall-wedding-bouquets/)
+- [how to decline wedding invite](https://wedding.allwomenstalk.com/tips-on-how-to-say-no-to-unwanted-help-during-the-wedding-planning/)
+- [paris color riche stylo eye violet amour](https://wedding.allwomenstalk.com/reasons-to-choose-black-and-white-wedding-photos/)
 - [great wedding themes](https://wedding.allwomenstalk.com/wedding-themes-for-the-best-day-of-your-life/)
+- [bridesmaid bouquets fall](https://wedding.allwomenstalk.com/stunning-fall-wedding-bouquets/)
+- [thats what friends are for bridesmaids](https://wedding.allwomenstalk.com/ways-to-stay-friends-with-your-bridesmaids-after-the-wedding/)
 - [best man gift to groom](https://wedding.allwomenstalk.com/gifts-your-groom-would-love-to-have/)
+- [a wedding toast](https://wedding.allwomenstalk.com/short-and-sweet-quotes-to-use-for-a-wedding-toast/)
+- [bride and dad](https://wedding.allwomenstalk.com/dads-wedding-surprise-makes-bride-and-groom-break-down-in-tears/)
+- [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [8 Exotic Wedding Themes Your Guests Will Love ...](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
 

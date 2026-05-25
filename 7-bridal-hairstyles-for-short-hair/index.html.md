@@ -52,16 +52,16 @@ Top image source: [cs284.vkontakte.ru](http://cs284.vkontakte.ru/u3908732/927576
 
 ## Related Posts
 
-- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
 - [plus size wedding hairstyles](https://wedding.allwomenstalk.com/bridal-hairstyles-that-work-for-everyone/)
-- [sexiest brides](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
-- [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
+- [wedding hairdos](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
+- [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
+- [cute ponytails](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
 - [princess hairstyle for little girl](https://hair.allwomenstalk.com/great-blogs-on-hairstyles-for-little-girls/)
 - [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
-- [wedding hairdos](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
+- [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
+- [sexiest brides](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
 - [cassie short hair](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
 - [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
-- [cute ponytails](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
 - [7 Wedding Hairstyles for Beautiful Brides ...](https://wedding.allwomenstalk.com/7-wedding-hairstyles-for-beautiful-brides/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 

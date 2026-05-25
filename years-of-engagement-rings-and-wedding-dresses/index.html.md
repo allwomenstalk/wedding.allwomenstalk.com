@@ -18,16 +18,16 @@ Which one of these dresses and rings is your favorite?
 
 ## Related Posts
 
-- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
+- [wedding day questions](https://wedding.allwomenstalk.com/questions-thatll-help-you-plan-the-perfect-wedding/)
+- [wedding tipping guide](https://wedding.allwomenstalk.com/wedding-hacks-you-should-see-before-you-get-hitched/)
+- [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
+- [most instagrammed places in the world](https://wedding.allwomenstalk.com/the-most-instagrammed-places-to-get-married/)
 - [bridesmaids party gif](https://wedding.allwomenstalk.com/every-bridesmaid-has-had-these-thoughts/)
 - [dream wedding ideas](https://wedding.allwomenstalk.com/girls-who-dream-about-getting-married-will-love-these-gifs/)
-- [wedding day questions](https://wedding.allwomenstalk.com/questions-thatll-help-you-plan-the-perfect-wedding/)
-- [most instagrammed places in the world](https://wedding.allwomenstalk.com/the-most-instagrammed-places-to-get-married/)
-- [caribbean themed cake](https://wedding.allwomenstalk.com/fabulous-wedding-cake-inspiration-typically-tropical/)
+- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
 - [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
-- [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
-- [wedding tipping guide](https://wedding.allwomenstalk.com/wedding-hacks-you-should-see-before-you-get-hitched/)
 - [The Sweetest Same Sex Wedding Ideas to Make Your H...](https://wedding.allwomenstalk.com/the-sweetest-same-sex-wedding-ideas-for-your-big-day/)
+- [caribbean themed cake](https://wedding.allwomenstalk.com/fabulous-wedding-cake-inspiration-typically-tropical/)
 - [Real Wedding: Handmade with Love ...](https://wedding.allwomenstalk.com/real-wedding-handmade-with-love/)
 - [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
 

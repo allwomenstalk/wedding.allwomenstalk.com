@@ -57,15 +57,15 @@ Celebrities such as Jessica Biel have made colorful wedding dresses a hot trend.
 ## Related Posts
 
 - [little legs fabric](https://fashion.allwomenstalk.com/summer-dresses-for-girls-with-very-short-legs/)
-- [fall bridesmaid](https://wedding.allwomenstalk.com/gorgeous-bridesmaid-dresses-for-the-most-beautiful-fall-wedding/)
-- [back to school dresses](https://fashion.allwomenstalk.com/back-to-school-dresses-that-will-make-a-statement/)
-- [phenomenal dress](https://fashion.allwomenstalk.com/phenomenal-modcloth-dresses-to-rock-at-your-wedding/)
-- [bird and rose print skater dress](https://fashion.allwomenstalk.com/dresses-featuring-bird-print-that-you-will-love/)
-- [dresses to suit hourglass figure](https://fashion.allwomenstalk.com/special-occasion-dresses-for-women-with-an-hourglass-shape/)
-- [unique print dresses](https://fashion.allwomenstalk.com/cute-dresses-with-unique-prints-to-wear-this-fall/)
 - [modcloth windy city dress](https://fashion.allwomenstalk.com/radiant-a-line-dresses-to-grab-and-never-let-go-of/)
-- [modcloth refer a friend](https://fashion.allwomenstalk.com/fabulous-dresses-from-modcloth-for-the-holiday-season/)
+- [fall bridesmaid](https://wedding.allwomenstalk.com/gorgeous-bridesmaid-dresses-for-the-most-beautiful-fall-wedding/)
 - [bridesmaids dresses ideas](https://wedding.allwomenstalk.com/unique-ideas-for-your-bridesmaid-dress/)
+- [phenomenal dress](https://fashion.allwomenstalk.com/phenomenal-modcloth-dresses-to-rock-at-your-wedding/)
+- [unique print dresses](https://fashion.allwomenstalk.com/cute-dresses-with-unique-prints-to-wear-this-fall/)
+- [bird and rose print skater dress](https://fashion.allwomenstalk.com/dresses-featuring-bird-print-that-you-will-love/)
+- [back to school dresses](https://fashion.allwomenstalk.com/back-to-school-dresses-that-will-make-a-statement/)
+- [dresses to suit hourglass figure](https://fashion.allwomenstalk.com/special-occasion-dresses-for-women-with-an-hourglass-shape/)
+- [modcloth refer a friend](https://fashion.allwomenstalk.com/fabulous-dresses-from-modcloth-for-the-holiday-season/)
 - [7 Wedding Dress Alternatives ...](https://wedding.allwomenstalk.com/7-wedding-dress-alternatives/)
 - [7 Colors to Wear if Youre Not the Bride ...](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 

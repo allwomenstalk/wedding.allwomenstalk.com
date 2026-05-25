@@ -42,16 +42,16 @@ In choosing your bridesmaids, there are a lot of factors to consider. Which of t
 
 ## Related Posts
 
-- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
-- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
-- [divergent theme](https://wedding.allwomenstalk.com/ways-to-have-a-divergent-themed-wedding/)
-- [wedding dress shopping mistakes](https://wedding.allwomenstalk.com/common-wedding-dress-shopping-mistakes-to-stay-away-from/)
 - [unconventional wedding venues](https://wedding.allwomenstalk.com/unconventional-wedding-venues-that-are-absolutely-beautiful/)
+- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
 - [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
-- [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
-- [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
 - [wedding shape](https://fitness.allwomenstalk.com/easy-ways-to-shape-up-for-your-wedding-day/)
+- [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
+- [wedding dress shopping mistakes](https://wedding.allwomenstalk.com/common-wedding-dress-shopping-mistakes-to-stay-away-from/)
+- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
 - [the week before the wedding](https://wedding.allwomenstalk.com/things-you-should-do-the-week-before-your-wedding/)
+- [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
+- [divergent theme](https://wedding.allwomenstalk.com/ways-to-have-a-divergent-themed-wedding/)
 - [5 Unique Things for Your Bridesmaids to Carry ...](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
 - [10 Things Every Bridesmaid Should do ...](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
 

@@ -56,16 +56,16 @@ Top Photo Credit: [dave_apple](https://www.flickr.com/photos/dave_apple/74891889
 
 ## Related Posts
 
-- [royal wedding party ideas](https://wedding.allwomenstalk.com/5-royal-wedding-looks-for-your-bridesmaids/)
+- [unique winter wedding ideas](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
 - [rustic diy wedding centerpieces](https://wedding.allwomenstalk.com/5-rustic-wedding-centerpiece-ideas/)
-- [7 Innovative Bridal Shower Ideas ...](https://wedding.allwomenstalk.com/innovative-bridal-shower-ideas/)
+- [royal wedding party ideas](https://wedding.allwomenstalk.com/5-royal-wedding-looks-for-your-bridesmaids/)
+- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
 - [wedding toast tips](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
+- [7 Innovative Bridal Shower Ideas ...](https://wedding.allwomenstalk.com/innovative-bridal-shower-ideas/)
 - [how to make money for a wedding](https://wedding.allwomenstalk.com/7-ways-to-raise-money-for-a-fabulous-honeymoon/)
 - [chandeliers wedding](https://wedding.allwomenstalk.com/4-ways-to-shine-with-wedding-chandeliers/)
-- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
-- [unique winter wedding ideas](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
-- [geeky wedding](https://wedding.allwomenstalk.com/5-fun-ways-to-celebrate-your-nerdy-wedding/)
 - [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
+- [geeky wedding](https://wedding.allwomenstalk.com/5-fun-ways-to-celebrate-your-nerdy-wedding/)
 - [5 Unique Things for Your Bridesmaids to Carry ...](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
 - [8 Tips on Choosing a Maid of Honor ...](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
 

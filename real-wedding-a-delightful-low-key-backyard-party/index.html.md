@@ -95,15 +95,15 @@ One of my favorite photos...and they lived happily ever after! Congrats to this 
 
 ## Related Posts
 
-- [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
-- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
+- [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
+- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
+- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
 - [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
-- [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
-- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
-- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
+- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
+- [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
 - [royal wedding party ideas](https://wedding.allwomenstalk.com/things-you-need-for-a-royal-wedding-party/)
-- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
+- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 - [3 Amazing Offbeat Weddings ...](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 - [Real Wedding: Get Your Party on in New Jersey](https://wedding.allwomenstalk.com/real-wedding-get-your-party-on-in-new-jersey/)

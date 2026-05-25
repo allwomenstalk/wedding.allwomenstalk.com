@@ -52,16 +52,16 @@ Top image source: [iretireearly.com](http://www.iretireearly.com/wp-content/uplo
 
 ## Related Posts
 
-- [royal wedding bank holiday](https://wedding.allwomenstalk.com/7-pros-and-cons-of-the-royal-wedding/)
-- [5 Ways to Celebrate Your Wedding Anniversary ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-wedding-anniversary/)
-- [kate middleton myers briggs](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-the-royal-wedding/)
-- [cameo wedding](https://wedding.allwomenstalk.com/4-etsy-wedding-accessories-for-your-cameo-theme/)
-- [4 Very Cool Wedding Reception Locations ...](https://wedding.allwomenstalk.com/4-very-cool-wedding-reception-locations/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
+- [4 Very Cool Wedding Reception Locations ...](https://wedding.allwomenstalk.com/4-very-cool-wedding-reception-locations/)
 - [unique place card ideas](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
-- [loreal le shadow primped and](https://wedding.allwomenstalk.com/adorable-save-the-date-ideas/)
-- [sunflower weddings](https://wedding.allwomenstalk.com/decor-ideas-for-your-sunflower-wedding/)
 - [best cupcakes for wedding](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
+- [loreal le shadow primped and](https://wedding.allwomenstalk.com/adorable-save-the-date-ideas/)
+- [royal wedding bank holiday](https://wedding.allwomenstalk.com/7-pros-and-cons-of-the-royal-wedding/)
+- [cameo wedding](https://wedding.allwomenstalk.com/4-etsy-wedding-accessories-for-your-cameo-theme/)
+- [5 Ways to Celebrate Your Wedding Anniversary ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-wedding-anniversary/)
+- [sunflower weddings](https://wedding.allwomenstalk.com/decor-ideas-for-your-sunflower-wedding/)
+- [kate middleton myers briggs](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-the-royal-wedding/)
 - [7 Reasons to Have a Destination Wedding ...](https://wedding.allwomenstalk.com/reasons-to-have-a-destination-wedding/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 

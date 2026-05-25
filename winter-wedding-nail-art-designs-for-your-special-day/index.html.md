@@ -151,16 +151,16 @@ What are you planning for your winter nails? I hope you found something here tha
 
 ## Related Posts
 
-- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
-- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
-- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
-- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
-- [football nail design](https://nails.allwomenstalk.com/sports-nail-art-ideas-that-will-make-you-ready-for-game-time/)
-- [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
 - [nail designs for valentines](https://nails.allwomenstalk.com/fabulous-valentines-day-nail-art-designs/)
-- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
-- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
+- [neon turquoise nail polish](https://nails.allwomenstalk.com/fabulous-ways-to-wear-glitter-nail-polish/)
+- [nails white with flowers](https://nails.allwomenstalk.com/wait-til-you-see-these-awesome-flower-nail-art-designs/)
 - [nail design black lines](https://nails.allwomenstalk.com/these-black-and-white-nail-art-patterns-will-rock-your-world/)
+- [jelly roll nail designs](https://nails.allwomenstalk.com/food-nail-art-designs-that-will-make-you-really-hungry/)
+- [nail videos](https://nails.allwomenstalk.com/up-your-style-game-with-these-nail-porn-videos/)
+- [sample of nail art designs](https://nails.allwomenstalk.com/fantastic-mardi-gras-nail-art-ideas/)
+- [football nail design](https://nails.allwomenstalk.com/sports-nail-art-ideas-that-will-make-you-ready-for-game-time/)
+- [neon cheetah print nails](https://nails.allwomenstalk.com/wait-until-you-see-these-adorable-ideas-for-animal-nail-art/)
+- [ocean themed nail art](https://nails.allwomenstalk.com/really-cool-sea-creature-nail-art-patterns/)
 - [7 Easy to Design Holiday Themed Nails ...](https://nails.allwomenstalk.com/easy-to-design-holiday-themed-nails/)
 - [9 Pretty Pink Nail Designs You Will Fawn over ...](https://nails.allwomenstalk.com/pretty-pink-nail-designs-you-will-fawn-over/)
 

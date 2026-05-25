@@ -46,16 +46,16 @@ You can do more than just make your wedding day eco-friendly, now you can go on 
 
 ## Related Posts
 
-- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
-- [loreal stylo enchanted](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
-- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
-- [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
 - [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
-- [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
-- [7 Reasons to Hire a Wedding Planner ...](https://wedding.allwomenstalk.com/7-reasons-to-hire-a-wedding-planner/)
-- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
+- [loreal stylo enchanted](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
+- [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
 - [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
+- [7 Reasons to Hire a Wedding Planner ...](https://wedding.allwomenstalk.com/7-reasons-to-hire-a-wedding-planner/)
+- [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
+- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
+- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
+- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
 - [5 Ways to Find Ideas outside the Wedding Box ...](https://wedding.allwomenstalk.com/5-ways-to-find-ideas-outside-the-wedding-box/)
 - [5 Creative Ways to save the Date ...](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 

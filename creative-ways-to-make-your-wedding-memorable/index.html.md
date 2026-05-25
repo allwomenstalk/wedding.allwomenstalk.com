@@ -74,16 +74,16 @@ I love this idea of ​​customizing jars with the names of your guests. They c
 
 ## Related Posts
 
-- [christmas wedding pictures](https://wedding.allwomenstalk.com/winter-wedding-inspiration/)
-- [cheap party themes](https://lifestyle.allwomenstalk.com/unique-party-themes-for-low-budgets/)
-- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
 - [wedding booze](https://wedding.allwomenstalk.com/ways-to-budget-for-booze-at-your-wedding/)
 - [eloping pros and cons](https://wedding.allwomenstalk.com/the-pros-and-cons-of-eloping/)
-- [disney theme wedding](https://wedding.allwomenstalk.com/disney-themed-wedding-inspo/)
-- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
-- [getting married in cancun](https://wedding.allwomenstalk.com/great-reasons-to-have-a-wedding-in-mexico/)
-- [best wedding tips ever](https://wedding.allwomenstalk.com/best-ever-wedding-planning-tips/)
 - [wedding dress regret](https://wedding.allwomenstalk.com/things-youll-regret-doing-on-your-wedding-day/)
+- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
+- [best wedding tips ever](https://wedding.allwomenstalk.com/best-ever-wedding-planning-tips/)
+- [disney theme wedding](https://wedding.allwomenstalk.com/disney-themed-wedding-inspo/)
+- [christmas wedding pictures](https://wedding.allwomenstalk.com/winter-wedding-inspiration/)
+- [getting married in cancun](https://wedding.allwomenstalk.com/great-reasons-to-have-a-wedding-in-mexico/)
+- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
+- [cheap party themes](https://lifestyle.allwomenstalk.com/unique-party-themes-for-low-budgets/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 

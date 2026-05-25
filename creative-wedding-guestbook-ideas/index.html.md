@@ -56,16 +56,16 @@ Now that you know all about my favorite wedding guestbook ideas, here’s one fi
 
 ## Related Posts
 
-- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
-- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
+- [gamer couple wedding cake topper](https://wedding.allwomenstalk.com/quirky-wedding-cake-toppers/)
 - [renew of vows](https://wedding.allwomenstalk.com/fun-ideas-for-renewing-your-vows/)
-- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
-- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
+- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
+- [how to add personal touches to your wedding](https://wedding.allwomenstalk.com/ways-to-add-personal-touches-to-your-wedding/)
+- [pinterest wedding dresses for bridesmaids](https://wedding.allwomenstalk.com/tips-on-how-to-use-pinterest-for-wedding-planning/)
 - [vineyard themed wedding](https://wedding.allwomenstalk.com/wine-themed-wedding-ideas/)
 - [emerald green theme wedding](https://wedding.allwomenstalk.com/ideas-for-an-emerald-themed-wedding/)
-- [pinterest wedding dresses for bridesmaids](https://wedding.allwomenstalk.com/tips-on-how-to-use-pinterest-for-wedding-planning/)
-- [how to add personal touches to your wedding](https://wedding.allwomenstalk.com/ways-to-add-personal-touches-to-your-wedding/)
-- [gamer couple wedding cake topper](https://wedding.allwomenstalk.com/quirky-wedding-cake-toppers/)
+- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
+- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
+- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 

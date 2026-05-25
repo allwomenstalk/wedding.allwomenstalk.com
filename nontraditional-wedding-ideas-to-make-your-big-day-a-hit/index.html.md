@@ -42,16 +42,16 @@ What’s your favorite nontraditional wedding idea? Will you incorporate any of 
 
 ## Related Posts
 
-- [do it yourself wedding programs](https://wedding.allwomenstalk.com/programs-thatll-make-your-wedding-even-more-special/)
-- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
+- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
 - [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
+- [caribbean themed cake](https://wedding.allwomenstalk.com/fabulous-wedding-cake-inspiration-typically-tropical/)
+- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
+- [do it yourself wedding programs](https://wedding.allwomenstalk.com/programs-thatll-make-your-wedding-even-more-special/)
+- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
+- [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
+- [100 years of wedding dresses](https://wedding.allwomenstalk.com/years-of-engagement-rings-and-wedding-dresses/)
 - [wedding cakes without icing](https://wedding.allwomenstalk.com/naked-cakes-to-inspire-your-future-wedding-cake/)
 - [wedding tipping guide](https://wedding.allwomenstalk.com/wedding-hacks-you-should-see-before-you-get-hitched/)
-- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
-- [caribbean themed cake](https://wedding.allwomenstalk.com/fabulous-wedding-cake-inspiration-typically-tropical/)
-- [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
-- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
-- [100 years of wedding dresses](https://wedding.allwomenstalk.com/years-of-engagement-rings-and-wedding-dresses/)
 - [5 Ways to Find Ideas outside the Wedding Box ...](https://wedding.allwomenstalk.com/5-ways-to-find-ideas-outside-the-wedding-box/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 

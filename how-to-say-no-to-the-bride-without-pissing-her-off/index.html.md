@@ -42,16 +42,16 @@ While it can be awkward to turn down your friend's kind request to be a part of 
 
 ## Related Posts
 
-- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/negative-body-language-postures/)
-- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
-- [parents dont like me](https://love.allwomenstalk.com/how-to-deal-when-his-parents-dont-like-you/)
 - [someone cool](https://inspiration.allwomenstalk.com/how-to-keep-your-cool-when-you-really-just-want-to-slap-someone/)
-- [good and bad customer service stories](https://lifestyle.allwomenstalk.com/how-to-deal-with-bad-customer-service/)
-- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
-- [moody partner in a relationship](https://love.allwomenstalk.com/how-to-deal-when-your-partner-is-moody/)
-- [remove toxic person quotes](https://inspiration.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life/)
-- [things soccer moms say](https://funny.allwomenstalk.com/ways-to-handle-a-crazy-soccer-parent/)
+- [parents dont like me](https://love.allwomenstalk.com/how-to-deal-when-his-parents-dont-like-you/)
 - [someone in a bubble](https://inspiration.allwomenstalk.com/how-to-recover-when-someone-bursts-your-bubble/)
+- [moody partner in a relationship](https://love.allwomenstalk.com/how-to-deal-when-your-partner-is-moody/)
+- [site:lifestyle.allwomenstalk.com](https://lifestyle.allwomenstalk.com/negative-body-language-postures/)
+- [good and bad customer service stories](https://lifestyle.allwomenstalk.com/how-to-deal-with-bad-customer-service/)
+- [remove toxic person quotes](https://inspiration.allwomenstalk.com/ways-to-remove-toxic-people-from-your-life/)
+- [getting rid of toxic friends](https://inspiration.allwomenstalk.com/steps-to-removing-a-toxic-friend-from-your-life/)
+- [things soccer moms say](https://funny.allwomenstalk.com/ways-to-handle-a-crazy-soccer-parent/)
+- [how to get out of speeding tickets](https://lifestyle.allwomenstalk.com/how-to-talk-your-way-out-of-a-speeding-ticket/)
 - [8 Ways to Handle Pre-Wedding Jitters ...](https://wedding.allwomenstalk.com/8-ways-to-handle-pre-wedding-jitters/)
 - [7 Ways for the Single Girl to Survive a Wedding .....](https://lifestyle.allwomenstalk.com/ways-for-the-single-girl-to-survive-a-wedding/)
 

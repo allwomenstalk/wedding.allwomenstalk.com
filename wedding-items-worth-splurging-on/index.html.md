@@ -43,15 +43,15 @@ Now that you know all about my favorite splurges, I want to know about yours! Wh
 ## Related Posts
 
 - [pinterest wedding dresses for bridesmaids](https://wedding.allwomenstalk.com/tips-on-how-to-use-pinterest-for-wedding-planning/)
-- [vineyard themed wedding](https://wedding.allwomenstalk.com/wine-themed-wedding-ideas/)
-- [gamer couple wedding cake topper](https://wedding.allwomenstalk.com/quirky-wedding-cake-toppers/)
 - [emerald green theme wedding](https://wedding.allwomenstalk.com/ideas-for-an-emerald-themed-wedding/)
-- [renew of vows](https://wedding.allwomenstalk.com/fun-ideas-for-renewing-your-vows/)
-- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
-- [how to add personal touches to your wedding](https://wedding.allwomenstalk.com/ways-to-add-personal-touches-to-your-wedding/)
-- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
 - [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
+- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
 - [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
+- [vineyard themed wedding](https://wedding.allwomenstalk.com/wine-themed-wedding-ideas/)
+- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
+- [gamer couple wedding cake topper](https://wedding.allwomenstalk.com/quirky-wedding-cake-toppers/)
+- [renew of vows](https://wedding.allwomenstalk.com/fun-ideas-for-renewing-your-vows/)
+- [how to add personal touches to your wedding](https://wedding.allwomenstalk.com/ways-to-add-personal-touches-to-your-wedding/)
 - [7 Ways to Travel in Style ...](https://travel.allwomenstalk.com/ways-to-travel-in-style/)
 - [7 Ways to Raise Money for a Fabulous Honeymoon ...](https://wedding.allwomenstalk.com/7-ways-to-raise-money-for-a-fabulous-honeymoon/)
 

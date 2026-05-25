@@ -66,16 +66,16 @@ Whether you want to replace your wedding cake with these non-cake alternatives o
 
 ## Related Posts
 
-- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
 - [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
-- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
-- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
-- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
-- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
 - [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
+- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
+- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
+- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
 - [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
 - [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
+- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
+- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 

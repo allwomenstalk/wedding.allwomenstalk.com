@@ -56,16 +56,16 @@ Getting engaged can be exciting, magical, and a little overwhelming at times. En
 
 ## Related Posts
 
-- [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
+- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
 - [how to pick a wedding photographer](https://wedding.allwomenstalk.com/how-to-choose-a-wedding-photographer/)
 - [wedding arrangements meaning](https://wedding.allwomenstalk.com/how-to-choose-wedding-flowers-based-on-their-meaning/)
 - [origami wedding gift](https://wedding.allwomenstalk.com/creative-ways-to-make-your-wedding-memorable/)
-- [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
+- [cheap party themes](https://lifestyle.allwomenstalk.com/unique-party-themes-for-low-budgets/)
 - [eloping pros and cons](https://wedding.allwomenstalk.com/the-pros-and-cons-of-eloping/)
 - [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
-- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
-- [cheap party themes](https://lifestyle.allwomenstalk.com/unique-party-themes-for-low-budgets/)
 - [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
+- [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
+- [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 - [5 Ways to Celebrate Your Wedding Anniversary ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-wedding-anniversary/)
 

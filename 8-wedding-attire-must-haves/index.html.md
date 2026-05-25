@@ -48,16 +48,16 @@ Top Photo Credit: [Mercury Jane](https://www.flickr.com/photos/photokat/49346595
 
 ## Related Posts
 
-- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
-- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
-- [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
 - [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
-- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
-- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 - [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
+- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
+- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
+- [lowkey wedding](https://wedding.allwomenstalk.com/real-wedding-a-delightful-low-key-backyard-party/)
+- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
+- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 - [royal wedding party ideas](https://wedding.allwomenstalk.com/things-you-need-for-a-royal-wedding-party/)
 - [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
-- [lowkey wedding](https://wedding.allwomenstalk.com/real-wedding-a-delightful-low-key-backyard-party/)
+- [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
 - [8 Tips on Choosing the Perfect Wedding Dress ...](https://wedding.allwomenstalk.com/tips-on-choosing-the-perfect-wedding-dress/)
 - [8 Fascinatingly Interesting Sites to Browse for St...](https://wedding.allwomenstalk.com/fascinatingly-interesting-sites-to-browse-for-stunning-wedding-dress-ideas/)
 

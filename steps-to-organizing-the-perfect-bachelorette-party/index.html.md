@@ -49,16 +49,16 @@ And there you have it, girls: the ultimate guide to planning a hen party bonanza
 
 ## Related Posts
 
-- [paris color riche stylo eye violet amour](https://wedding.allwomenstalk.com/reasons-to-choose-black-and-white-wedding-photos/)
-- [wedding dress t](https://wedding.allwomenstalk.com/things-to-do-when-your-wedding-dress-doesnt-fit-suddenly/)
-- [cute ways to ask someone to be your maid of honor](https://wedding.allwomenstalk.com/fun-and-creative-ways-to-ask-a-friend-to-be-your-bridesmaid/)
-- [useful wedding giveaways](https://wedding.allwomenstalk.com/wedding-favors-without-candy-or-food/)
-- [groom ideas](https://wedding.allwomenstalk.com/ways-to-connect-with-your-groom-on-your-wedding-day/)
-- [7 Things Totally Not Worth Freaking out over on Yo...](https://wedding.allwomenstalk.com/things-totally-not-worth-freaking-out-over-on-your-wedding-day/)
 - [wedding on a shoestring budget](https://wedding.allwomenstalk.com/ways-to-fake-an-expensive-wedding/)
-- [thats what friends are for bridesmaids](https://wedding.allwomenstalk.com/ways-to-stay-friends-with-your-bridesmaids-after-the-wedding/)
 - [song request on wedding rsvp](https://wedding.allwomenstalk.com/fun-ideas-for-your-wedding-your-guests-will-love/)
+- [paris color riche stylo eye violet amour](https://wedding.allwomenstalk.com/reasons-to-choose-black-and-white-wedding-photos/)
+- [thats what friends are for bridesmaids](https://wedding.allwomenstalk.com/ways-to-stay-friends-with-your-bridesmaids-after-the-wedding/)
+- [wedding dress t](https://wedding.allwomenstalk.com/things-to-do-when-your-wedding-dress-doesnt-fit-suddenly/)
 - [southern flair](https://wedding.allwomenstalk.com/ways-to-give-your-wedding-some-sassy-southern-flair/)
+- [7 Things Totally Not Worth Freaking out over on Yo...](https://wedding.allwomenstalk.com/things-totally-not-worth-freaking-out-over-on-your-wedding-day/)
+- [groom ideas](https://wedding.allwomenstalk.com/ways-to-connect-with-your-groom-on-your-wedding-day/)
+- [useful wedding giveaways](https://wedding.allwomenstalk.com/wedding-favors-without-candy-or-food/)
+- [cute ways to ask someone to be your maid of honor](https://wedding.allwomenstalk.com/fun-and-creative-ways-to-ask-a-friend-to-be-your-bridesmaid/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 - [8 Tips on Having the Perfect Wedding ...](https://wedding.allwomenstalk.com/8-tips-on-having-the-perfect-wedding/)
 

@@ -56,16 +56,16 @@ From chic to playful, there are wedding escort card ideas for every [wedding the
 
 ## Related Posts
 
-- [memorial table ideas](https://wedding.allwomenstalk.com/heartfelt-wedding-memorial-ideas/)
 - [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
-- [all white wedding ideas](https://wedding.allwomenstalk.com/wedding-themes-that-everyone-will-love/)
-- [7 ways to honor your mother](https://wedding.allwomenstalk.com/special-ways-to-honor-mom-at-your-wedding/)
-- [hot wedding photo](https://wedding.allwomenstalk.com/hot-wedding-photography-trends-for/)
-- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
+- [best gift for friends wedding female](https://wedding.allwomenstalk.com/wedding-gifts-for-your-best-friends/)
 - [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
 - [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
+- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
+- [memorial table ideas](https://wedding.allwomenstalk.com/heartfelt-wedding-memorial-ideas/)
+- [hot wedding photo](https://wedding.allwomenstalk.com/hot-wedding-photography-trends-for/)
+- [7 ways to honor your mother](https://wedding.allwomenstalk.com/special-ways-to-honor-mom-at-your-wedding/)
+- [all white wedding ideas](https://wedding.allwomenstalk.com/wedding-themes-that-everyone-will-love/)
 - [what is bride garter](https://wedding.allwomenstalk.com/creative-wedding-garter-ideas/)
-- [best gift for friends wedding female](https://wedding.allwomenstalk.com/wedding-gifts-for-your-best-friends/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 

@@ -68,16 +68,16 @@ These are just a few examples of what photos you should have in your wedding alb
 
 ## Related Posts
 
-- [photos of wedding ring](https://wedding.allwomenstalk.com/creative-wedding-ring-photo-ideas/)
-- [his unforgettable fiancee](https://wedding.allwomenstalk.com/unforgettable-wedding-gifts-your-fiance-will-love/)
-- [french party theme](https://wedding.allwomenstalk.com/creative-ways-to-plan-a-french-themed-engagement-party/)
-- [edgy updos](https://hair.allwomenstalk.com/wedding-updos-you-dont-want-to-miss/)
 - [hawaii wedding favors](https://wedding.allwomenstalk.com/fun-hawaiian-wedding-ideas-for-tying-the-knot-in-paradise/)
+- [his unforgettable fiancee](https://wedding.allwomenstalk.com/unforgettable-wedding-gifts-your-fiance-will-love/)
 - [unique centerpieces wedding](https://wedding.allwomenstalk.com/creative-and-unusual-wedding-centerpiece-ideas-to-try/)
+- [edgy updos](https://hair.allwomenstalk.com/wedding-updos-you-dont-want-to-miss/)
 - [intimate wedding benefits](https://wedding.allwomenstalk.com/great-reasons-to-plan-a-small-and-intimate-wedding/)
-- [vow writing tips](https://wedding.allwomenstalk.com/invaluable-wedding-vow-tips-that-will-help-you-write-your-own/)
 - [wedding registry essentials](https://wedding.allwomenstalk.com/classic-home-essentials-to-include-in-your-wedding-registry/)
+- [french party theme](https://wedding.allwomenstalk.com/creative-ways-to-plan-a-french-themed-engagement-party/)
+- [vow writing tips](https://wedding.allwomenstalk.com/invaluable-wedding-vow-tips-that-will-help-you-write-your-own/)
 - [carnival wedding theme](https://wedding.allwomenstalk.com/awesome-carnival-wedding-ideas-for-the-best-day-ever/)
+- [photos of wedding ring](https://wedding.allwomenstalk.com/creative-wedding-ring-photo-ideas/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 

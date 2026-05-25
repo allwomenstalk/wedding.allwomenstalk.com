@@ -62,16 +62,16 @@ Did your favorite recently engaged celebrity make my list? I'm really excited to
 
 ## Related Posts
 
+- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
 - [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
-- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
-- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
-- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
-- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
 - [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
+- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
 - [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
 - [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
-- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
-- [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
+- [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
+- [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
 - [8 Most Adorable Celebrity Proposal Stories ...](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
 - [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
 

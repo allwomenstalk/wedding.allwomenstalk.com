@@ -110,16 +110,16 @@ Which one do yo want to give away at your wedding?
 
 ## Related Posts
 
-- [The Sweetest Same Sex Wedding Ideas to Make Your H...](https://wedding.allwomenstalk.com/the-sweetest-same-sex-wedding-ideas-for-your-big-day/)
 - [most instagrammed places in the world](https://wedding.allwomenstalk.com/the-most-instagrammed-places-to-get-married/)
-- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
 - [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
-- [films about weddings](https://movies.allwomenstalk.com/wedding-movies-that-are-about-more-than-just-a-wedding/)
-- [dream wedding ideas](https://wedding.allwomenstalk.com/girls-who-dream-about-getting-married-will-love-these-gifs/)
-- [gateau geode](https://wedding.allwomenstalk.com/these-geode-wedding-cakes-will-blow-your-mind/)
-- [bridesmaids party gif](https://wedding.allwomenstalk.com/every-bridesmaid-has-had-these-thoughts/)
-- [harry potter-themed wedding ideas](https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/)
 - [wedding day questions](https://wedding.allwomenstalk.com/questions-thatll-help-you-plan-the-perfect-wedding/)
+- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
+- [gateau geode](https://wedding.allwomenstalk.com/these-geode-wedding-cakes-will-blow-your-mind/)
+- [harry potter-themed wedding ideas](https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/)
+- [dream wedding ideas](https://wedding.allwomenstalk.com/girls-who-dream-about-getting-married-will-love-these-gifs/)
+- [films about weddings](https://movies.allwomenstalk.com/wedding-movies-that-are-about-more-than-just-a-wedding/)
+- [bridesmaids party gif](https://wedding.allwomenstalk.com/every-bridesmaid-has-had-these-thoughts/)
+- [The Sweetest Same Sex Wedding Ideas to Make Your H...](https://wedding.allwomenstalk.com/the-sweetest-same-sex-wedding-ideas-for-your-big-day/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 - [5 Unique Vases for Your Wedding Centerpieces ...](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 

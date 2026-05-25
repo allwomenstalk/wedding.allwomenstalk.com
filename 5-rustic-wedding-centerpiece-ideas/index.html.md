@@ -141,16 +141,16 @@ No matter your budget, your venue, or where you are from, a rustic wedding and a
 
 ## Related Posts
 
-- [wedding toast tips](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
-- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
-- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
-- [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
-- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
-- [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 - [crazy venue](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)
-- [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
+- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
+- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
 - [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
+- [wedding toast tips](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
 - [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)
+- [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
+- [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
+- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
+- [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
 - [5 Unique Vases for Your Wedding Centerpieces ...](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [8 Wedding Centerpiece Ideas That Look Amazing ...](https://wedding.allwomenstalk.com/wedding-centerpiece-ideas-that-look-amazing/)
 

@@ -56,16 +56,16 @@ Are you using one of these classic wedding songs for your first dance? Sometimes
 
 ## Related Posts
 
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
-- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
 - [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
-- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
-- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
-- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
-- [tangled wedding ideas](https://wedding.allwomenstalk.com/great-movie-inspired-wedding-themes/)
-- [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
 - [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
+- [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
+- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
+- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
+- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
 - [engagement things to do](https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/)
+- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
+- [tangled wedding ideas](https://wedding.allwomenstalk.com/great-movie-inspired-wedding-themes/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
 - [10 Fantastic Driving Songs ...](https://travel.allwomenstalk.com/10-fantastic-driving-songs/)
 - [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
 

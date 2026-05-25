@@ -118,16 +118,16 @@ Everyone at All Women Stalk sends their congratulations to Cheetah and Rhian! Ha
 
 ## Related Posts
 
-- [is my boyfriend taking advantage of me](https://love.allwomenstalk.com/is-your-boyfriend-taking-advantage-of-you/)
 - [vehicle youd buy if money were no object](https://money.allwomenstalk.com/what-would-you-buy-if-money-were-no-object/)
-- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
-- [fashion icons meaning](https://fashion.allwomenstalk.com/what-type-of-style-icon-are-you/)
-- [someone with good values](https://inspiration.allwomenstalk.com/what-values-make-you-a-good-person/)
 - [worlds best jobs](https://money.allwomenstalk.com/are-these-the-best-jobs-in-the-world/)
+- [someone with good values](https://inspiration.allwomenstalk.com/what-values-make-you-a-good-person/)
+- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
+- [bored of my job but it pays well](https://money.allwomenstalk.com/do-you-really-hate-your-job-or-are-you-just-bored/)
+- [amulets of egypt](https://jewelry.allwomenstalk.com/how-much-do-you-know-about-ancient-egyptian-amulets/)
 - [destined with you break up](https://love.allwomenstalk.com/are-you-destined-to-break-up/)
 - [signs he likes the idea of you](https://love.allwomenstalk.com/signs-you-only-like-the-idea-of-him/)
-- [bored of my job but it pays well](https://money.allwomenstalk.com/do-you-really-hate-your-job-or-are-you-just-bored/)
-- [following footsteps](https://lifestyle.allwomenstalk.com/do-your-parents-want-you-to-follow-in-their-footsteps/)
+- [is my boyfriend taking advantage of me](https://love.allwomenstalk.com/is-your-boyfriend-taking-advantage-of-you/)
+- [fashion icons meaning](https://fashion.allwomenstalk.com/what-type-of-style-icon-are-you/)
 - [10 Extremely Short Celebrity Marriages ...](https://celebs.allwomenstalk.com/extremely-short-celebrity-marriages/)
 - [So Youre Planning a Wedding](https://allwomenstalk.com/3-2/)
 

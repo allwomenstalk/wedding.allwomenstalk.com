@@ -56,15 +56,15 @@ What are your thoughts? Do you plan to go for color wedding photos, black and wh
 
 ## Related Posts
 
-- [great wedding themes](https://wedding.allwomenstalk.com/wedding-themes-for-the-best-day-of-your-life/)
+- [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
+- [how to decline wedding invite](https://wedding.allwomenstalk.com/tips-on-how-to-say-no-to-unwanted-help-during-the-wedding-planning/)
 - [thats what friends are for bridesmaids](https://wedding.allwomenstalk.com/ways-to-stay-friends-with-your-bridesmaids-after-the-wedding/)
 - [wedding shower theme ideas for couples](https://wedding.allwomenstalk.com/unique-themes-for-the-next-bridal-shower-you-throw/)
-- [bridesmaid bouquets fall](https://wedding.allwomenstalk.com/stunning-fall-wedding-bouquets/)
-- [best man gift to groom](https://wedding.allwomenstalk.com/gifts-your-groom-would-love-to-have/)
-- [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
+- [great wedding themes](https://wedding.allwomenstalk.com/wedding-themes-for-the-best-day-of-your-life/)
 - [save the date photo ideas](https://wedding.allwomenstalk.com/save-the-date-ideas/)
-- [how to decline wedding invite](https://wedding.allwomenstalk.com/tips-on-how-to-say-no-to-unwanted-help-during-the-wedding-planning/)
+- [best man gift to groom](https://wedding.allwomenstalk.com/gifts-your-groom-would-love-to-have/)
 - [a wedding toast](https://wedding.allwomenstalk.com/short-and-sweet-quotes-to-use-for-a-wedding-toast/)
+- [bridesmaid bouquets fall](https://wedding.allwomenstalk.com/stunning-fall-wedding-bouquets/)
 - [bride and dad](https://wedding.allwomenstalk.com/dads-wedding-surprise-makes-bride-and-groom-break-down-in-tears/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [7 Things to Think about when Choosing Your Wedding...](https://wedding.allwomenstalk.com/7-things-to-think-about-when-choosing-your-wedding-photographer/)

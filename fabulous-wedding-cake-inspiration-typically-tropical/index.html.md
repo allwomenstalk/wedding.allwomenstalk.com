@@ -248,16 +248,16 @@ Which is your favorite?
 
 ## Related Posts
 
-- [harry potter-themed wedding ideas](https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/)
-- [bridesmaids party gif](https://wedding.allwomenstalk.com/every-bridesmaid-has-had-these-thoughts/)
-- [wedding day questions](https://wedding.allwomenstalk.com/questions-thatll-help-you-plan-the-perfect-wedding/)
-- [dream wedding ideas](https://wedding.allwomenstalk.com/girls-who-dream-about-getting-married-will-love-these-gifs/)
-- [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
-- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
 - [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
-- [films about weddings](https://movies.allwomenstalk.com/wedding-movies-that-are-about-more-than-just-a-wedding/)
+- [dream wedding ideas](https://wedding.allwomenstalk.com/girls-who-dream-about-getting-married-will-love-these-gifs/)
+- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
 - [The Sweetest Same Sex Wedding Ideas to Make Your H...](https://wedding.allwomenstalk.com/the-sweetest-same-sex-wedding-ideas-for-your-big-day/)
 - [most instagrammed places in the world](https://wedding.allwomenstalk.com/the-most-instagrammed-places-to-get-married/)
+- [wedding day questions](https://wedding.allwomenstalk.com/questions-thatll-help-you-plan-the-perfect-wedding/)
+- [films about weddings](https://movies.allwomenstalk.com/wedding-movies-that-are-about-more-than-just-a-wedding/)
+- [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
+- [bridesmaids party gif](https://wedding.allwomenstalk.com/every-bridesmaid-has-had-these-thoughts/)
+- [harry potter-themed wedding ideas](https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/)
 - [A Tropical Honeymoon in Jamaica: Guest Blogger Ali...](https://wedding.allwomenstalk.com/a-tropical-paradise-honeymoon-in-jamaica-guest-blogger-alicia-the-charity-wedding/)
 - [You Need to See These Wedding Cakes That Arent Whi...](https://thecrepescafe.com/you-need-to-see-these-wedding-cakes-that-arent-white/)
 

@@ -42,16 +42,16 @@ So I hope my list was a bit helpful, while you decide on your answer to being in
 
 ## Related Posts
 
-- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
-- [unconventional wedding venues](https://wedding.allwomenstalk.com/unconventional-wedding-venues-that-are-absolutely-beautiful/)
-- [wedding dress shopping mistakes](https://wedding.allwomenstalk.com/common-wedding-dress-shopping-mistakes-to-stay-away-from/)
-- [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
-- [grey and blue wedding theme](https://wedding.allwomenstalk.com/gorgeous-wedding-color-schemes-for/)
-- [best dance moves to break out at a wedding](https://wedding.allwomenstalk.com/best-wedding-dance-videos/)
 - [wedding shape](https://fitness.allwomenstalk.com/easy-ways-to-shape-up-for-your-wedding-day/)
 - [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
+- [grey and blue wedding theme](https://wedding.allwomenstalk.com/gorgeous-wedding-color-schemes-for/)
 - [the week before the wedding](https://wedding.allwomenstalk.com/things-you-should-do-the-week-before-your-wedding/)
+- [best dance moves to break out at a wedding](https://wedding.allwomenstalk.com/best-wedding-dance-videos/)
+- [timeless wedding band](https://wedding.allwomenstalk.com/wedding-bands-with-show-stopping-yet-timeless-style/)
+- [wedding dress shopping mistakes](https://wedding.allwomenstalk.com/common-wedding-dress-shopping-mistakes-to-stay-away-from/)
 - [divergent theme](https://wedding.allwomenstalk.com/ways-to-have-a-divergent-themed-wedding/)
+- [unconventional wedding venues](https://wedding.allwomenstalk.com/unconventional-wedding-venues-that-are-absolutely-beautiful/)
+- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
 - [10 Things Every Bridesmaid Should do ...](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
 - [10 Wedding Etiquette Tips You Might Not Be Aware o...](https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/)
 

@@ -42,16 +42,16 @@ Any of these makeup looks would be great on a bride depending on what kind of lo
 
 ## Related Posts
 
-- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
-- [wedding arrangements meaning](https://wedding.allwomenstalk.com/how-to-choose-wedding-flowers-based-on-their-meaning/)
-- [how to pick a wedding photographer](https://wedding.allwomenstalk.com/how-to-choose-a-wedding-photographer/)
 - [origami wedding gift](https://wedding.allwomenstalk.com/creative-ways-to-make-your-wedding-memorable/)
-- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
+- [how to pick a wedding photographer](https://wedding.allwomenstalk.com/how-to-choose-a-wedding-photographer/)
+- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
 - [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
-- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
 - [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
-- [eloping pros and cons](https://wedding.allwomenstalk.com/the-pros-and-cons-of-eloping/)
+- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
 - [celebrating engagement](https://wedding.allwomenstalk.com/inspiring-ways-to-celebrate-getting-engaged-to-your-sweetheart/)
+- [eloping pros and cons](https://wedding.allwomenstalk.com/the-pros-and-cons-of-eloping/)
+- [wedding arrangements meaning](https://wedding.allwomenstalk.com/how-to-choose-wedding-flowers-based-on-their-meaning/)
+- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
 - [4 Lasting Bridal Makeup Trends amp Tips ...](https://wedding.allwomenstalk.com/4-lasting-bridal-makeup-trends-tips/)
 - [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
 

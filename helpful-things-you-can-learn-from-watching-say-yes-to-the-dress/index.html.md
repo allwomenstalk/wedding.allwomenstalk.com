@@ -42,16 +42,16 @@ All of these little tips can help you when it is time to shop for your wedding d
 
 ## Related Posts
 
-- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
 - [no impact project](https://books.allwomenstalk.com/lessons-you-can-learn-from-the-no-impact-man/)
+- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
+- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
 - [how to be the most confident person](https://inspiration.allwomenstalk.com/traits-of-confident-people-to-emulate/)
-- [one thing that money cant buy](https://money.allwomenstalk.com/things-money-cant-buy/)
-- [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
 - [fables morals](https://books.allwomenstalk.com/of-aesops-fables-and-the-lessons-they-teach/)
 - [mindy kaling height in feet](https://inspiration.allwomenstalk.com/life-lessons-from-mindy-kaling/)
 - [lady gaga myers briggs](https://lifestyle.allwomenstalk.com/fantastic-things-we-can-learn-from-lady-gaga/)
-- [people are quick to judge](https://inspiration.allwomenstalk.com/categories-of-people-we-shouldnt-be-so-quick-to-judge/)
-- [summary of pride and prejudice in 500 words](https://books.allwomenstalk.com/lessons-we-can-learn-from-jane-austen-today/)
+- [one thing that money cant buy](https://money.allwomenstalk.com/things-money-cant-buy/)
+- [things that are a mystery](https://lifestyle.allwomenstalk.com/seemingly-simple-things-that-are-still-a-mystery/)
+- [mary poppins i never explain anything](https://inspiration.allwomenstalk.com/lessons-you-can-learn-from-mary-poppins/)
 - [10 Things Every Bridesmaid Should do ...](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
 - [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 

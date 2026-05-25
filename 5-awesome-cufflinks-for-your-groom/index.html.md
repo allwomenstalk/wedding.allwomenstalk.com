@@ -56,16 +56,16 @@ Top Photo: [TheKnot](https://goo.gl/saaIFv)
 
 ## Related Posts
 
-- [bright dress for wedding](https://wedding.allwomenstalk.com/ways-to-go-bright-bold-with-bridal-jewelry/)
 - [silybands](https://parenting.allwomenstalk.com/7-cute-silly-bandz/)
 - [cool pink flowers](https://gardening.allwomenstalk.com/5-cool-pink-flowers/)
-- [princess wedding hair](https://wedding.allwomenstalk.com/4-bridal-hair-accessories-for-the-royal-princess/)
+- [flower rings for bridesmaids](https://wedding.allwomenstalk.com/5-beautiful-rings-for-the-bride-and-her-bridesmaids/)
 - [loreal paris color le stylo eye amour](https://cooking.allwomenstalk.com/7-lovely-sets-of-dishes/)
 - [elegant bridal jewelry sets](https://wedding.allwomenstalk.com/fabulously-glamorous-bridal-jewelry-sets/)
+- [princess wedding hair](https://wedding.allwomenstalk.com/4-bridal-hair-accessories-for-the-royal-princess/)
 - [how to pick bridal jewelry](https://wedding.allwomenstalk.com/surefire-tips-to-keep-in-mind-when-buying-bridal-jewelry/)
-- [flower rings for bridesmaids](https://wedding.allwomenstalk.com/5-beautiful-rings-for-the-bride-and-her-bridesmaids/)
-- [tuxedo for ring bearer](https://wedding.allwomenstalk.com/5-adorable-ring-bearers-and-their-cute-suits/)
 - [mother of bride bracelet](https://wedding.allwomenstalk.com/giveaway-the-lucky-elephant-bridal-bracelet/)
+- [tuxedo for ring bearer](https://wedding.allwomenstalk.com/5-adorable-ring-bearers-and-their-cute-suits/)
+- [bright dress for wedding](https://wedding.allwomenstalk.com/ways-to-go-bright-bold-with-bridal-jewelry/)
 - [5 Unique Wedding Band Sets ...](https://wedding.allwomenstalk.com/5-unique-wedding-band-sets/)
 - [7 Handsome Mens Wedding Bands from Tiffany ...](https://jewelry.allwomenstalk.com/7-handsome-mens-wedding-bands-from-tiffany/)
 

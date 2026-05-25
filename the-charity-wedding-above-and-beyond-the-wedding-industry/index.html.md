@@ -50,16 +50,16 @@ Congratulations to Alicia and Kyle...thank you for an inspiring story and weddin
 
 ## Related Posts
 
-- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
-- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
-- [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
-- [bachelorette party wild](https://wedding.allwomenstalk.com/7-no-nos-at-a-bachelorette-party/)
-- [whimsical fall](https://wedding.allwomenstalk.com/great-ideas-for-a-whimsical-fall-wedding/)
-- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
-- [honeymoon of a lifetime](https://wedding.allwomenstalk.com/honeymoon-of-a-lifetime-guest-blogger-terri-try-anything-once/)
-- [loreal paris color stylo silver](https://wedding.allwomenstalk.com/wedding-centerpiece-ideas-that-look-amazing/)
 - [pink brides](https://wedding.allwomenstalk.com/ways-to-tickle-your-wedding-pink/)
+- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
 - [girls loving dogs](https://wedding.allwomenstalk.com/1-guy-1-girl-1-dog-a-fun-loving-engagement-shoot-in-florida/)
+- [loreal paris color stylo silver](https://wedding.allwomenstalk.com/wedding-centerpiece-ideas-that-look-amazing/)
+- [bachelorette party wild](https://wedding.allwomenstalk.com/7-no-nos-at-a-bachelorette-party/)
+- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
+- [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
+- [honeymoon of a lifetime](https://wedding.allwomenstalk.com/honeymoon-of-a-lifetime-guest-blogger-terri-try-anything-once/)
+- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
+- [whimsical fall](https://wedding.allwomenstalk.com/great-ideas-for-a-whimsical-fall-wedding/)
 - [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 - [Jars of Love: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
 

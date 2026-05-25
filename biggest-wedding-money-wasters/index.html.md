@@ -42,16 +42,16 @@ Do you agree with my list of wedding money wasters? What's on your not to buy fo
 
 ## Related Posts
 
-- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
-- [8 year anniversary gift traditional](https://wedding.allwomenstalk.com/first-wedding-anniversary-gift-ideas/)
-- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
-- [all white wedding ideas](https://wedding.allwomenstalk.com/wedding-themes-that-everyone-will-love/)
 - [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
-- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
-- [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
-- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
-- [wedding escort card ideas](https://wedding.allwomenstalk.com/unique-wedding-escort-card-ideas/)
 - [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
+- [wedding escort card ideas](https://wedding.allwomenstalk.com/unique-wedding-escort-card-ideas/)
+- [all white wedding ideas](https://wedding.allwomenstalk.com/wedding-themes-that-everyone-will-love/)
+- [8 year anniversary gift traditional](https://wedding.allwomenstalk.com/first-wedding-anniversary-gift-ideas/)
+- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
+- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
+- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
+- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
+- [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
 - [7 Wedding Tips That Could save You Tons of Money ....](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
 - [8 Tips to save Money and Survive the Wedding Seaso...](https://allwomenstalk.com/8-tips-to-save-money-and-survive-the-wedding-season/)
 

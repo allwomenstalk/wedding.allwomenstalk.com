@@ -136,15 +136,15 @@ This article was written in collaboration with editor Sabrina Yates.
 
 ## Related Posts
 
-- [best open back dresses](https://fashion.allwomenstalk.com/daring-open-back-dresses/)
-- [black fall dresses](https://fashion.allwomenstalk.com/not-so-basic-black-dresses-for-fall/)
-- [what to wear at bar](https://fashion.allwomenstalk.com/things-to-wear-for-a-bat-mitzvah/)
-- [showoff dresses](https://fashion.allwomenstalk.com/stylish-bodycon-dresses-to-show-off-your-figure/)
 - [2012 wedding trends](https://wedding.allwomenstalk.com/fab-wedding-gown-trends-for-summer/)
 - [statement skirts](https://fashion.allwomenstalk.com/stunning-statement-skirts/)
-- [paris color riche stylo smoky couture](https://wedding.allwomenstalk.com/gorgeous-couture-wedding-dresses/)
-- [prince and princess couples costumes](https://lifestyle.allwomenstalk.com/awesome-halloween-costumes-for-couples/)
+- [black fall dresses](https://fashion.allwomenstalk.com/not-so-basic-black-dresses-for-fall/)
 - [summer wedding bridesmaid dress](https://wedding.allwomenstalk.com/bridesmaid-summer-dresses-your-wedding-party-will-love/)
+- [what to wear at bar](https://fashion.allwomenstalk.com/things-to-wear-for-a-bat-mitzvah/)
+- [best open back dresses](https://fashion.allwomenstalk.com/daring-open-back-dresses/)
+- [paris color riche stylo smoky couture](https://wedding.allwomenstalk.com/gorgeous-couture-wedding-dresses/)
+- [showoff dresses](https://fashion.allwomenstalk.com/stylish-bodycon-dresses-to-show-off-your-figure/)
+- [prince and princess couples costumes](https://lifestyle.allwomenstalk.com/awesome-halloween-costumes-for-couples/)
 - [nicole aniston all about the lace](https://wedding.allwomenstalk.com/wedding-dress-ideas-for-jennifer-aniston-2/)
 - [7 Gorgeous Dresses for the Mother of the Bride ...](https://wedding.allwomenstalk.com/7-gorgeous-dresses-for-the-mother-of-the-bride/)
 - [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)

@@ -77,16 +77,16 @@ We hope all of these lovely women get the chance to live happily ever after inst
 
 ## Related Posts
 
-- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
-- [hottest teen](https://allwomenstalk.com/15-hottest-teen-celebrities_/)
-- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
-- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
-- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
 - [embarrassing moments celebrities](https://celebs.allwomenstalk.com/most-embarrassing-celeb-moments-youve-got-to-hear-about/)
-- [waking up dehydrated meme](https://celebs.allwomenstalk.com/annoying-things-celebrities-do/)
-- [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
-- [steve o back tatto](https://celebs.allwomenstalk.com/worst-celebrity-tattoos/)
+- [hottest teen](https://allwomenstalk.com/15-hottest-teen-celebrities_/)
+- [good hearted celebrities](https://celebs.allwomenstalk.com/nicest-celebrities-who-have-a-heart-of-gold/)
+- [hot peopel](https://allwomenstalk.com/guess-who-the-sexiest-men-celebrities-are/)
 - [celebrities favorite snacks](https://celebs.allwomenstalk.com/celebrity-snack-cravings/)
+- [7 Sexy Leading Men from Britain ...](https://movies.allwomenstalk.com/sexy-leading-men-from-britain/)
+- [celebrity holiday cards](https://allwomenstalk.com/celebrity-holiday-cards-pick-your-favorite/)
+- [waking up dehydrated meme](https://celebs.allwomenstalk.com/annoying-things-celebrities-do/)
+- [steve o back tatto](https://celebs.allwomenstalk.com/worst-celebrity-tattoos/)
+- [what celebrity named their kid pillow](https://celebs.allwomenstalk.com/off-the-wall-celebrity-baby-names/)
 - [8 Gorgeous Wedding Veils ...](https://wedding.allwomenstalk.com/8-gorgeous-wedding-veils/)
 - [8 Fab Shoes to Get Married in ...](https://wedding.allwomenstalk.com/8-fab-shoes-to-get-married-in/)
 

@@ -42,16 +42,16 @@ This is your day and it should be done the way you want it to be done. Enjoy thi
 
 ## Related Posts
 
-- [wedding traditions to skip](https://wedding.allwomenstalk.com/wedding-traditions-to-skip/)
 - [7 Tips from a Celebrity Wedding Planner ...](https://wedding.allwomenstalk.com/tips-from-a-celebrity-wedding-planner/)
-- [10 Ways to Cut Your Wedding Day Costs ...](https://wedding.allwomenstalk.com/ways-to-cut-your-wedding-day-costs/)
 - [something blue ideas](https://wedding.allwomenstalk.com/something-blue-ideas-for-your-wedding-attire/)
-- [7 Quick Tips for Writing Wedding Thank You Notes ....](https://wedding.allwomenstalk.com/quick-tips-for-writing-wedding-thank-you-notes/)
 - [8 Wedding Welcome Bag Essentials ...](https://wedding.allwomenstalk.com/wedding-welcome-bag-essentials/)
-- [7 Wedding Guest Errors to Avoid ...](https://wedding.allwomenstalk.com/wedding-guest-errors-to-avoid/)
+- [7 Quick Tips for Writing Wedding Thank You Notes ....](https://wedding.allwomenstalk.com/quick-tips-for-writing-wedding-thank-you-notes/)
 - [riche shadow and previous](https://wedding.allwomenstalk.com/awesome-engagement-shoot-tips/)
-- [7 Spring Wedding Ideas ...](https://wedding.allwomenstalk.com/spring-wedding-ideas/)
 - [7 Style Tips from Royal Weddings ...](https://wedding.allwomenstalk.com/style-tips-from-royal-weddings/)
+- [wedding traditions to skip](https://wedding.allwomenstalk.com/wedding-traditions-to-skip/)
+- [7 Spring Wedding Ideas ...](https://wedding.allwomenstalk.com/spring-wedding-ideas/)
+- [7 Wedding Guest Errors to Avoid ...](https://wedding.allwomenstalk.com/wedding-guest-errors-to-avoid/)
+- [10 Ways to Cut Your Wedding Day Costs ...](https://wedding.allwomenstalk.com/ways-to-cut-your-wedding-day-costs/)
 - [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 

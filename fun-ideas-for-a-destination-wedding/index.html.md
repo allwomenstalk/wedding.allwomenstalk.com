@@ -62,16 +62,16 @@ When I saw a similar idea from [Mrs. Elephant](http://www.weddingbee.com/2011/02
 
 ## Related Posts
 
-- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
+- [wedding mailing stamps](https://wedding.allwomenstalk.com/vendor-spotlight-wedding-stamps/)
 - [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
 - [Just B.Cause: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/just-b-cause-above-and-beyond-the-wedding-industry/)
-- [wedding runway](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/)
-- [wedding mailing stamps](https://wedding.allwomenstalk.com/vendor-spotlight-wedding-stamps/)
-- [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)
+- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 - [easter themed wedding](https://wedding.allwomenstalk.com/5-creative-ideas-for-an-easter-holiday-wedding/)
 - [bubblerock](https://wedding.allwomenstalk.com/bubblerock-studios-above-and-beyond-the-wedding-industry/)
 - [invitation with location](https://wedding.allwomenstalk.com/8-ways-to-let-your-destination-wedding-location-guide-your-letterpress-invitation/)
 - [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
+- [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)
+- [wedding runway](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [5 Amazing Destination Weddings to Explore ...](https://wedding.allwomenstalk.com/5-amazing-destination-weddings-to-explore/)
 

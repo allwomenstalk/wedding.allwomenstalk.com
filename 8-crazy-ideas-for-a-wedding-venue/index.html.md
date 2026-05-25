@@ -48,16 +48,16 @@ Top image source: [4.bp.blogspot.com](http://4.bp.blogspot.com/_abGRa1b0BJc/S6tr
 
 ## Related Posts
 
-- [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
-- [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
-- [wedding runway](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/)
-- [Just B.Cause: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/just-b-cause-above-and-beyond-the-wedding-industry/)
-- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
 - [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
-- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 - [invitation with location](https://wedding.allwomenstalk.com/8-ways-to-let-your-destination-wedding-location-guide-your-letterpress-invitation/)
+- [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
+- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
+- [Just B.Cause: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/just-b-cause-above-and-beyond-the-wedding-industry/)
 - [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)
+- [wedding runway](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/)
+- [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
 - [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
+- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 

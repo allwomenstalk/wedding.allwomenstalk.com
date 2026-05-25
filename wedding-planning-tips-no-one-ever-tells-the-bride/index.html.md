@@ -37,16 +37,16 @@ We are so excited for Erin and her husband-to-be, we hope they have the most rom
 
 ## Related Posts
 
-- [wedding runway](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/)
-- [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
 - [easter themed wedding](https://wedding.allwomenstalk.com/5-creative-ideas-for-an-easter-holiday-wedding/)
-- [wedding mailing stamps](https://wedding.allwomenstalk.com/vendor-spotlight-wedding-stamps/)
-- [candy bridal](https://wedding.allwomenstalk.com/sweet-ideas-for-a-candy-themed-bridal-shower/)
-- [invitation with location](https://wedding.allwomenstalk.com/8-ways-to-let-your-destination-wedding-location-guide-your-letterpress-invitation/)
-- [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
-- [Just B.Cause: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/just-b-cause-above-and-beyond-the-wedding-industry/)
+- [wedding runway](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/)
 - [bubblerock](https://wedding.allwomenstalk.com/bubblerock-studios-above-and-beyond-the-wedding-industry/)
+- [Just B.Cause: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/just-b-cause-above-and-beyond-the-wedding-industry/)
+- [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
+- [wedding mailing stamps](https://wedding.allwomenstalk.com/vendor-spotlight-wedding-stamps/)
 - [october wedding flowers](https://wedding.allwomenstalk.com/beautiful-fall-wedding-flower-ideas/)
+- [candy bridal](https://wedding.allwomenstalk.com/sweet-ideas-for-a-candy-themed-bridal-shower/)
+- [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
+- [invitation with location](https://wedding.allwomenstalk.com/8-ways-to-let-your-destination-wedding-location-guide-your-letterpress-invitation/)
 - [8 Tips on Having the Perfect Wedding ...](https://wedding.allwomenstalk.com/8-tips-on-having-the-perfect-wedding/)
 - [6 Ways to Plan a Fairytale Wedding ...](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
 

@@ -42,15 +42,15 @@ These are some ways you can handle small issues at your wedding. What are your w
 
 ## Related Posts
 
-- [southern flair](https://wedding.allwomenstalk.com/ways-to-give-your-wedding-some-sassy-southern-flair/)
 - [groom ideas](https://wedding.allwomenstalk.com/ways-to-connect-with-your-groom-on-your-wedding-day/)
-- [useful wedding giveaways](https://wedding.allwomenstalk.com/wedding-favors-without-candy-or-food/)
+- [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
+- [wedding dress t](https://wedding.allwomenstalk.com/things-to-do-when-your-wedding-dress-doesnt-fit-suddenly/)
 - [best man gift to groom](https://wedding.allwomenstalk.com/gifts-your-groom-would-love-to-have/)
 - [song request on wedding rsvp](https://wedding.allwomenstalk.com/fun-ideas-for-your-wedding-your-guests-will-love/)
 - [cute ways to ask someone to be your maid of honor](https://wedding.allwomenstalk.com/fun-and-creative-ways-to-ask-a-friend-to-be-your-bridesmaid/)
-- [wedding dress t](https://wedding.allwomenstalk.com/things-to-do-when-your-wedding-dress-doesnt-fit-suddenly/)
+- [southern flair](https://wedding.allwomenstalk.com/ways-to-give-your-wedding-some-sassy-southern-flair/)
 - [thats what friends are for bridesmaids](https://wedding.allwomenstalk.com/ways-to-stay-friends-with-your-bridesmaids-after-the-wedding/)
-- [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
+- [useful wedding giveaways](https://wedding.allwomenstalk.com/wedding-favors-without-candy-or-food/)
 - [paris color riche stylo eye violet amour](https://wedding.allwomenstalk.com/reasons-to-choose-black-and-white-wedding-photos/)
 - [8 Things People Hate about Weddings ...](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)

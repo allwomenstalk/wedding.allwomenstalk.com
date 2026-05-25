@@ -106,16 +106,16 @@ Top Image: [GreenWeddingShoes.com](https://web.archive.org/web/https://greenwedd
 
 ## Related Posts
 
+- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
 - [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
-- [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
-- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
 - [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
 - [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
-- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
-- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
 - [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [8 Advantages of a Winter Wedding](https://wedding.allwomenstalk.com/8-advantages-of-a-winter-wedding/)
+- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
+- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
+- [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 

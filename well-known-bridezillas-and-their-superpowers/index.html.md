@@ -60,16 +60,16 @@ Check out the original _Bridezillas infographic_ and find out your bridal superp
 
 ## Related Posts
 
-- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
-- [top 10 disney princesses](https://movies.allwomenstalk.com/inspirational-and-heroic-disney-princesses-that-i-admire/)
-- [mom edward scissorhands](https://movies.allwomenstalk.com/amazing-movie-moms-who-will-inspire-you-to-be-a-better-mom/)
-- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
-- [archie panjabi bikini](https://celebs.allwomenstalk.com/underrated-actresses-that-i-want-to-see-more-of/)
-- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
-- [durga banerjee](https://inspiration.allwomenstalk.com/inspirational-asian-women-we-should-celebrate/)
 - [emma stone character](https://movies.allwomenstalk.com/fabulous-characters-portrayed-by-emma-stone-that-you-cant-help-but-love/)
-- [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
+- [most famous female poets](https://books.allwomenstalk.com/amazing-female-poets-i-love-to-read-again-and-again/)
+- [old school girl games](https://lifestyle.allwomenstalk.com/old-school-video-games-that-will-inspire-your-inner-gamer-girl/)
+- [durga banerjee](https://inspiration.allwomenstalk.com/inspirational-asian-women-we-should-celebrate/)
+- [top 10 disney princesses](https://movies.allwomenstalk.com/inspirational-and-heroic-disney-princesses-that-i-admire/)
+- [archie panjabi bikini](https://celebs.allwomenstalk.com/underrated-actresses-that-i-want-to-see-more-of/)
 - [funny lady actors](https://celebs.allwomenstalk.com/hilarious-female-celebrities-who-should-be-comedians/)
+- [disney princesses historically accurate](https://lifestyle.allwomenstalk.com/amazing-drawings-of-historically-accurate-disney-princesses/)
+- [soroptimist clubs](https://travel.allwomenstalk.com/of-the-worlds-most-feminist-countries/)
+- [mom edward scissorhands](https://movies.allwomenstalk.com/amazing-movie-moms-who-will-inspire-you-to-be-a-better-mom/)
 - [5 Real Brides That Will Catch Your Eye ...](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 - [7 Biggest Celebrity Weddings ...](https://wedding.allwomenstalk.com/biggest-celebrity-weddings/)
 

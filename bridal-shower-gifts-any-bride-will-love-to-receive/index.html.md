@@ -56,15 +56,15 @@ These are 7 ideas for bridal shower gifts that are a little different to help yo
 
 ## Related Posts
 
-- [pink things to put in a gift basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets/)
-- [things to get for my boyfriend on his birthday](https://love.allwomenstalk.com/things-to-get-him-for-his-birthday/)
-- [how to light up someones mood](https://lifestyle.allwomenstalk.com/gift-ideas-for-a-friend-that-are-sure-to-brighten-her-day/)
 - [harry potter thank you gifts](https://lifestyle.allwomenstalk.com/awesome-gifts-for-someone-who-loves-harry-potter/)
+- [crafts for christmas in july](https://inspiration.allwomenstalk.com/christmas-in-july-ornaments-to-get-you-ready-for-the-season/)
+- [pink things to put in a gift basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets/)
+- [nice gifts for new moms](https://parenting.allwomenstalk.com/great-gift-ideas-for-new-moms/)
 - [gift ideas for long distance relationships](https://love.allwomenstalk.com/gift-ideas-to-survive-a-long-distance-relationship/)
 - [healthy easter baskets](https://health.allwomenstalk.com/ideas-for-a-healthier-easter-basket/)
-- [crafts for christmas in july](https://inspiration.allwomenstalk.com/christmas-in-july-ornaments-to-get-you-ready-for-the-season/)
-- [nice gifts for new moms](https://parenting.allwomenstalk.com/great-gift-ideas-for-new-moms/)
+- [how to light up someones mood](https://lifestyle.allwomenstalk.com/gift-ideas-for-a-friend-that-are-sure-to-brighten-her-day/)
 - [how to wrap flowers in paper](https://diy.allwomenstalk.com/fancy-and-unique-gift-wrapping-ideas/)
+- [things to get for my boyfriend on his birthday](https://love.allwomenstalk.com/things-to-get-him-for-his-birthday/)
 - [twin birthday presents](https://parenting.allwomenstalk.com/practical-gifts-for-twins-on-their-birthday/)
 - [8 Interesting Bridal Shower Gifts for a Bride ...](https://wedding.allwomenstalk.com/8-interesting-bridal-shower-gifts-for-a-bride/)
 - [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)

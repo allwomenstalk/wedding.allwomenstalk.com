@@ -48,15 +48,15 @@ Top Photo Credit: [boncyboutique.com](https://www.flickr.com/photos/51379526@N02
 
 ## Related Posts
 
-- [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
-- [4 Wedding Inspiration Ideas: Home Decor ...](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-home-decor/)
-- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 - [royal wedding party ideas](https://wedding.allwomenstalk.com/things-you-need-for-a-royal-wedding-party/)
-- [8 Wedding Attire Must-Haves ...](https://wedding.allwomenstalk.com/8-wedding-attire-must-haves/)
-- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
-- [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
 - [lowkey wedding](https://wedding.allwomenstalk.com/real-wedding-a-delightful-low-key-backyard-party/)
+- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 - [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
+- [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
+- [8 Wedding Attire Must-Haves ...](https://wedding.allwomenstalk.com/8-wedding-attire-must-haves/)
+- [4 Wedding Inspiration Ideas: Home Decor ...](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-home-decor/)
+- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
+- [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
 - [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)

@@ -54,16 +54,16 @@ In lieu of [favors](https://web.archive.org/web/https://www.joyceandjimlavene.co
 
 ## Related Posts
 
+- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 - [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
-- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
-- [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
 - [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [6 Ways to Color a Star Spangled Wedding ...](https://wedding.allwomenstalk.com/ways-to-color-a-star-spangled-wedding/)
-- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
-- [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
-- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
-- [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
 - [blackening of the bride](https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/)
+- [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
+- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
+- [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
+- [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
+- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Ways to Incorporate Your Wedding Location into t...](https://wedding.allwomenstalk.com/8-ways-to-let-your-destination-wedding-location-guide-your-letterpress-invitation/)
 

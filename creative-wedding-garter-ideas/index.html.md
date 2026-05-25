@@ -68,16 +68,16 @@ Now that you’ve seen some of my favorite wedding garter ideas, it’s time to 
 
 ## Related Posts
 
-- [ways to display photos at wedding](https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/)
-- [deco table gatsby](https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/)
-- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
-- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
 - [unique save the date ideas](https://wedding.allwomenstalk.com/creative-save-the-date-ideas/)
-- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
+- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [deco table gatsby](https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/)
+- [ways to display photos at wedding](https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/)
 - [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
-- [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
-- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
 - [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
+- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
+- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
+- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
+- [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
 - [8 Gorgeous Wedding Veils ...](https://wedding.allwomenstalk.com/8-gorgeous-wedding-veils/)
 - [8 Presents for a Bride-to-Be ...](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
 

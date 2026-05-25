@@ -54,16 +54,16 @@ Follow the trends of [Kate Middleton](https://wedding.allwomenstalk.com/4-bridal
 
 ## Related Posts
 
+- [6 Ways to Color a Star Spangled Wedding ...](https://wedding.allwomenstalk.com/ways-to-color-a-star-spangled-wedding/)
+- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 - [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
 - [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
-- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
-- [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
-- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
 - [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
 - [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
+- [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
 - [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
-- [6 Ways to Color a Star Spangled Wedding ...](https://wedding.allwomenstalk.com/ways-to-color-a-star-spangled-wedding/)
+- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
 - [5 Unique Things for Your Bridesmaids to Carry ...](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
 - [8 Tips on Having the Perfect Wedding ...](https://wedding.allwomenstalk.com/8-tips-on-having-the-perfect-wedding/)
 

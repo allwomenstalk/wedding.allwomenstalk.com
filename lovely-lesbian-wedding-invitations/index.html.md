@@ -68,16 +68,16 @@ These are 8 of the sweetest lesbian invitations on the 'Net. Did you fall in lov
 
 ## Related Posts
 
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
-- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
-- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
 - [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
-- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
-- [8 year anniversary gift traditional](https://wedding.allwomenstalk.com/first-wedding-anniversary-gift-ideas/)
 - [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
+- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
 - [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
+- [8 year anniversary gift traditional](https://wedding.allwomenstalk.com/first-wedding-anniversary-gift-ideas/)
 - [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
+- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
 - [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
+- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 - [4 Lovely Weddings to Inspire Your Garden Theme ...](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
 

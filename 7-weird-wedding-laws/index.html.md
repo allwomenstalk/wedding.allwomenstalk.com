@@ -44,16 +44,16 @@ Top Photo Credit: [Ryan Brenizer](https://www.flickr.com/photos/carpeicthus/2126
 
 ## Related Posts
 
-- [loreal smoky timeless spark](https://wedding.allwomenstalk.com/5-etsy-wedding-finds-for-the-non-diy-bride/)
-- [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
 - [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
 - [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
-- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
-- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
-- [8 Advantages of a Winter Wedding](https://wedding.allwomenstalk.com/8-advantages-of-a-winter-wedding/)
-- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
-- [wedding stiletto heels](https://wedding.allwomenstalk.com/5-high-heels-to-spice-up-your-wedding/)
+- [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
 - [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
+- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
+- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
+- [8 Advantages of a Winter Wedding](https://wedding.allwomenstalk.com/8-advantages-of-a-winter-wedding/)
+- [loreal smoky timeless spark](https://wedding.allwomenstalk.com/5-etsy-wedding-finds-for-the-non-diy-bride/)
+- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
+- [wedding stiletto heels](https://wedding.allwomenstalk.com/5-high-heels-to-spice-up-your-wedding/)
 - [8 Potential Wedding Disasters](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
 - [7 Wackiest Proposals Ever ...](https://wedding.allwomenstalk.com/7-wackiest-proposals-ever/)
 

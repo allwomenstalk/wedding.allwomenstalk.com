@@ -38,16 +38,16 @@ Anyway, thanks for letting me ramble about this amazing trip. If anyone has any 
 
 ## Related Posts
 
-- [iconic trip](https://travel.allwomenstalk.com/iconic-travel-trips/)
-- [9 Best Diving Sites ...](https://travel.allwomenstalk.com/best-diving-sites/)
 - [7 European Travel Destinations ...](https://travel.allwomenstalk.com/european-travel-destinations/)
-- [backpack america](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
-- [best spring destinations](https://travel.allwomenstalk.com/best-spring-destinations/)
-- [7 Reasons Why Boutique Hotels Are Awesome ...](https://travel.allwomenstalk.com/7-reasons-why-boutique-hotels-are-awesome/)
 - [7 Islands to See before You Die ...](https://travel.allwomenstalk.com/7-islands-to-see-before-you-die/)
 - [beaches new england](https://travel.allwomenstalk.com/new-england-beaches-i-love/)
-- [fun spring break locations](https://travel.allwomenstalk.com/9-exciting-spring-break-destinations/)
+- [best spring destinations](https://travel.allwomenstalk.com/best-spring-destinations/)
 - [10 Best Budget Destinations for 2012 ...](https://travel.allwomenstalk.com/best-budget-destinations-for/)
+- [backpack america](https://travel.allwomenstalk.com/7-amazing-places-to-backpack-in-america/)
+- [fun spring break locations](https://travel.allwomenstalk.com/9-exciting-spring-break-destinations/)
+- [iconic trip](https://travel.allwomenstalk.com/iconic-travel-trips/)
+- [9 Best Diving Sites ...](https://travel.allwomenstalk.com/best-diving-sites/)
+- [7 Reasons Why Boutique Hotels Are Awesome ...](https://travel.allwomenstalk.com/7-reasons-why-boutique-hotels-are-awesome/)
 - [Honeymoon Adventure in Japan: Guest Blogger Kristi...](https://wedding.allwomenstalk.com/honeymoon-adventure-in-japan-guest-blogger-kristin/)
 - [A Disney World Honeymoon: Guest Blogger Casie Shim...](https://wedding.allwomenstalk.com/a-disney-world-honeymoon-guest-blogger-casie-shimansky/)
 

@@ -56,16 +56,16 @@ Whether you decide to adorn your cake with the quintessential graceful couple or
 
 ## Related Posts
 
-- [vineyard themed wedding](https://wedding.allwomenstalk.com/wine-themed-wedding-ideas/)
 - [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
-- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
-- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
-- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
-- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
-- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
 - [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
+- [vineyard themed wedding](https://wedding.allwomenstalk.com/wine-themed-wedding-ideas/)
 - [pinterest wedding dresses for bridesmaids](https://wedding.allwomenstalk.com/tips-on-how-to-use-pinterest-for-wedding-planning/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
+- [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
+- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
+- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
+- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
+- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [8 Unique Wedding Favors ...](https://allwomenstalk.com/8-unique-wedding-favors/)
 

@@ -91,16 +91,16 @@ Models: Dave and Natalie
 
 ## Related Posts
 
-- [bridesmaid job](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
-- [summer beach wedding colors](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
 - [royal wedding party ideas](https://wedding.allwomenstalk.com/5-royal-wedding-looks-for-your-bridesmaids/)
-- [geeky wedding](https://wedding.allwomenstalk.com/5-fun-ways-to-celebrate-your-nerdy-wedding/)
-- [chandeliers wedding](https://wedding.allwomenstalk.com/4-ways-to-shine-with-wedding-chandeliers/)
 - [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
-- [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
-- [money saving tips for wedding](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
+- [bridesmaid job](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
 - [boudoir photos for groom](https://wedding.allwomenstalk.com/5-classy-boudoir-photos-to-surprise-your-groom-with/)
+- [geeky wedding](https://wedding.allwomenstalk.com/5-fun-ways-to-celebrate-your-nerdy-wedding/)
 - [how to make money for a wedding](https://wedding.allwomenstalk.com/7-ways-to-raise-money-for-a-fabulous-honeymoon/)
+- [money saving tips for wedding](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
+- [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
+- [summer beach wedding colors](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
+- [chandeliers wedding](https://wedding.allwomenstalk.com/4-ways-to-shine-with-wedding-chandeliers/)
 - [Inspirational Bridal Shoot: City Chic ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-city-chic/)
 - [5 Wedding Inspiration Ideas: Cities Full of Life ....](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-cities-full-of-life/)
 

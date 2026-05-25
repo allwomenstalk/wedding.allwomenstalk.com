@@ -62,15 +62,15 @@ You don't have to feature a signature wedding cocktail during your big day to ma
 
 ## Related Posts
 
-- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
-- [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
-- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
-- [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
 - [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
+- [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
+- [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
 - [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
 - [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
+- [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
 - [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
+- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
 - [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 - [8 Crazy Ideas for a Wedding Venue ...](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)

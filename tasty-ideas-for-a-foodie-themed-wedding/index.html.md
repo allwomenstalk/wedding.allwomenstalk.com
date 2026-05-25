@@ -74,16 +74,16 @@ You don't have to be a chef to have a **foodie themed wedding** or even be someo
 
 ## Related Posts
 
+- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
 - [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
-- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
-- [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
-- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
+- [wedding songs 2014](https://wedding.allwomenstalk.com/of-the-most-annoying-wedding-songs-ever/)
+- [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
 - [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
 - [vegas wedding inspo](https://wedding.allwomenstalk.com/fun-ideas-for-a-sparkly-wedding-theme/)
-- [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
-- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
-- [wedding songs 2014](https://wedding.allwomenstalk.com/of-the-most-annoying-wedding-songs-ever/)
 - [how to add personal touches to your wedding](https://wedding.allwomenstalk.com/ways-to-add-personal-touches-to-your-wedding/)
+- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
+- [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
+- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
 - [8 Culinary Vacations for All Tastes ...](https://travel.allwomenstalk.com/8-culinary-vacations-for-all-tastes/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 

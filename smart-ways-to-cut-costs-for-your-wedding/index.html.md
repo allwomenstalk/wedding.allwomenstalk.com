@@ -88,16 +88,16 @@ Top Image Source: _stephaniewilliamsphotography.com_
 
 ## Related Posts
 
-- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
 - [transportation ideas for wedding](https://wedding.allwomenstalk.com/fun-wedding-transportation-ideas-2/)
 - [fall apple decorations](https://wedding.allwomenstalk.com/apple-decor-wedding-ideas-for-fall/)
-- [weird wedding cakes](https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/)
-- [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
 - [deceased parent on wedding invitation](https://wedding.allwomenstalk.com/beautiful-ways-to-remember-a-deceased-parent-at-your-wedding/)
+- [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
 - [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
-- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
-- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
 - [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
+- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
+- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
+- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
+- [weird wedding cakes](https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/)
 - [7 Wedding Tips That Could save You Tons of Money ....](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
 - [How to save Money on a Wedding ...](https://allwomenstalk.com/how-to-save-money-on-a-wedding/)
 

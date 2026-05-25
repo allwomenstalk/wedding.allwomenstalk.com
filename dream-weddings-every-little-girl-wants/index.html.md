@@ -108,16 +108,16 @@ When I was a little girl, I dreamed and dreamed and dreamed of my wedding. I wan
 
 ## Related Posts
 
-- [wedding pictures gone wrong](https://wedding.allwomenstalk.com/wedding-mishaps-you-dont-want-to-happen/)
-- [wedding shower at work](https://wedding.allwomenstalk.com/how-to-make-your-bridal-shower-special/)
-- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
-- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
 - [nontraditional wedding ideas](https://wedding.allwomenstalk.com/nontraditional-wedding-ideas-to-make-your-big-day-a-hit/)
+- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
 - [do it yourself wedding programs](https://wedding.allwomenstalk.com/programs-thatll-make-your-wedding-even-more-special/)
-- [creative ways to ask your best friend to prom](https://wedding.allwomenstalk.com/fun-ways-to-ask-your-besties-to-be-your-bridesmaids/)
-- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
-- [wedding cakes without icing](https://wedding.allwomenstalk.com/naked-cakes-to-inspire-your-future-wedding-cake/)
+- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
 - [100 years of wedding dresses](https://wedding.allwomenstalk.com/years-of-engagement-rings-and-wedding-dresses/)
+- [wedding cakes without icing](https://wedding.allwomenstalk.com/naked-cakes-to-inspire-your-future-wedding-cake/)
+- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
+- [wedding pictures gone wrong](https://wedding.allwomenstalk.com/wedding-mishaps-you-dont-want-to-happen/)
+- [creative ways to ask your best friend to prom](https://wedding.allwomenstalk.com/fun-ways-to-ask-your-besties-to-be-your-bridesmaids/)
+- [wedding shower at work](https://wedding.allwomenstalk.com/how-to-make-your-bridal-shower-special/)
 - [6 Wedding Dresses for Every Brides Beautiful Body ...](https://wedding.allwomenstalk.com/6-wedding-dresses-for-every-brides-beautiful-body/)
 - [10 Gorgeous Wedding Dresses ...](https://allwomenstalk.com/10-gorgeous-wedding-dresses/)
 

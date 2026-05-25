@@ -44,16 +44,16 @@ Top Photo Source: _callawaygable.com_
 
 ## Related Posts
 
-- [a married man will never leave his wife](https://love.allwomenstalk.com/good-reasons-never-to-get-involved-with-a-married-man/)
-- [theres no such place like home](https://lifestyle.allwomenstalk.com/reasons-why-theres-no-place-like-home/)
-- [turn off the tv](https://lifestyle.allwomenstalk.com/reasons-to-turn-off-the-tv/)
-- [is it ok to be a virgin forever](https://health.allwomenstalk.com/reasons-to-remain-a-virgin-for-as-long-as-you-can/)
 - [how to get out of the friend zone with a guy](https://love.allwomenstalk.com/reasons-to-take-him-out-of-the-friend-zone/)
-- [get out date](https://love.allwomenstalk.com/worst-excuses-to-get-out-of-a-date/)
-- [dont judge someone by their looks](https://lifestyle.allwomenstalk.com/excellent-reasons-not-to-judge-people/)
 - [birthday ideas for myself](https://lifestyle.allwomenstalk.com/valid-reasons-not-to-celebrate-your-birthday/)
 - [how does take a break work on facebook](https://lifestyle.allwomenstalk.com/reasons-to-take-a-break-from-facebook/)
+- [is it ok to be a virgin forever](https://health.allwomenstalk.com/reasons-to-remain-a-virgin-for-as-long-as-you-can/)
+- [dont judge someone by their looks](https://lifestyle.allwomenstalk.com/excellent-reasons-not-to-judge-people/)
+- [turn off the tv](https://lifestyle.allwomenstalk.com/reasons-to-turn-off-the-tv/)
+- [a married man will never leave his wife](https://love.allwomenstalk.com/good-reasons-never-to-get-involved-with-a-married-man/)
 - [feeling disappointed in myself](https://lifestyle.allwomenstalk.com/amazing-reasons-not-to-be-disappointed-in-yourself/)
+- [get out date](https://love.allwomenstalk.com/worst-excuses-to-get-out-of-a-date/)
+- [theres no such place like home](https://lifestyle.allwomenstalk.com/reasons-why-theres-no-place-like-home/)
 - [7 Reasons Some People Hate Being Married ...](https://wedding.allwomenstalk.com/7-reasons-some-people-hate-being-married/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 

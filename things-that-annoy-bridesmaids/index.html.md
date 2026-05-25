@@ -44,16 +44,16 @@ Source: [popsugar.com](https://www.popsugar.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
 - [to take advice](https://inspiration.allwomenstalk.com/types-of-people-you-shouldnt-take-advice-from/)
-- [What Not to Party: Dont Pretend to like Something](https://allwomenstalk.com/what-not-to-party-dont-pretend-to-like-something/)
-- [Zip It Top 10 Things That You Shouldnt Say to Him](https://allwomenstalk.com/zip-it-top-10-things-that-you-shouldnt-say-to-him/)
-- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
-- [Dont Say It Top Ten Lines a Woman Should Never Hea...](https://allwomenstalk.com/top-ten-lines-a-woman-should-never-hear-from-you/)
 - [match.com dating profile examples](https://love.allwomenstalk.com/scientists-found-the-biggest-turn-offs-in-your-online-dating-profile/)
+- [how to say no to someone asking for a favor](https://inspiration.allwomenstalk.com/times-you-should-absolutely-say-no-when-someone-asks-you-for-a-favor/)
+- [dont drink and text](https://lifestyle.allwomenstalk.com/people-you-should-never-drunk-text/)
+- [What Not to Party: Dont Pretend to like Something](https://allwomenstalk.com/what-not-to-party-dont-pretend-to-like-something/)
+- [not late party](https://allwomenstalk.com/what-not-to-party-dont-come-too-late/)
+- [Dont Say It Top Ten Lines a Woman Should Never Hea...](https://allwomenstalk.com/top-ten-lines-a-woman-should-never-hear-from-you/)
+- [Zip It Top 10 Things That You Shouldnt Say to Him](https://allwomenstalk.com/zip-it-top-10-things-that-you-shouldnt-say-to-him/)
 - [bad twilight tattoo](https://lifestyle.allwomenstalk.com/the-worst-places-for-tattoos-according-to-tattoo-artists/)
 - [What Not to Party: Showing up Early](https://allwomenstalk.com/what-not-to-party-showing-up-early/)
-- [not late party](https://allwomenstalk.com/what-not-to-party-dont-come-too-late/)
 - [7 No-Nos at a Bachelorette Party ...](https://wedding.allwomenstalk.com/7-no-nos-at-a-bachelorette-party/)
 - [8 Things People Hate about Weddings ...](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 

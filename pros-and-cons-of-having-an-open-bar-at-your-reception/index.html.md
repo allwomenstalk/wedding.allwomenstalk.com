@@ -42,16 +42,16 @@ Ultimately, having an open bar is up to you. However, you should always think ab
 
 ## Related Posts
 
-- [must have wedding](https://wedding.allwomenstalk.com/must-have-wedding-photos/)
-- [pingg invitations](https://lifestyle.allwomenstalk.com/perks-of-using-digital-invitations-for-your-party/)
-- [bridezilla meaning](https://wedding.allwomenstalk.com/tips-on-how-to-avoid-becoming-a-bridezilla/)
-- [ring inspo](https://wedding.allwomenstalk.com/creative-wedding-ring-designs-that-will-make-you-gasp/)
-- [photos of wedding ring](https://wedding.allwomenstalk.com/creative-wedding-ring-photo-ideas/)
-- [literary themed wedding](https://wedding.allwomenstalk.com/absolutely-splendid-ideas-for-a-literary-themed-wedding/)
-- [paris themed wedding](https://wedding.allwomenstalk.com/fabulous-ways-to-plan-a-french-themed-wedding-that-will-wow-your-guests/)
 - [rustic wedding ideas bridesmaids](https://wedding.allwomenstalk.com/unique-ways-to-rock-the-rustic-wedding-theme/)
+- [literary themed wedding](https://wedding.allwomenstalk.com/absolutely-splendid-ideas-for-a-literary-themed-wedding/)
 - [french party theme](https://wedding.allwomenstalk.com/creative-ways-to-plan-a-french-themed-engagement-party/)
 - [his unforgettable fiancee](https://wedding.allwomenstalk.com/unforgettable-wedding-gifts-your-fiance-will-love/)
+- [bridezilla meaning](https://wedding.allwomenstalk.com/tips-on-how-to-avoid-becoming-a-bridezilla/)
+- [ring inspo](https://wedding.allwomenstalk.com/creative-wedding-ring-designs-that-will-make-you-gasp/)
+- [must have wedding](https://wedding.allwomenstalk.com/must-have-wedding-photos/)
+- [photos of wedding ring](https://wedding.allwomenstalk.com/creative-wedding-ring-photo-ideas/)
+- [paris themed wedding](https://wedding.allwomenstalk.com/fabulous-ways-to-plan-a-french-themed-wedding-that-will-wow-your-guests/)
+- [pingg invitations](https://lifestyle.allwomenstalk.com/perks-of-using-digital-invitations-for-your-party/)
 - [8 Advantages of a Guest-Free Wedding ...](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
 - [7 Wedding Planning Tips ...](https://love.allwomenstalk.com/wedding-planning-tips/)
 

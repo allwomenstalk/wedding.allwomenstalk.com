@@ -44,16 +44,16 @@ Top Photo Credit: [Emery Co Photo](https://www.flickr.com/photos/emerycophoto/25
 
 ## Related Posts
 
-- [bridal jitters](https://wedding.allwomenstalk.com/8-ways-to-handle-pre-wedding-jitters/)
-- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
-- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
-- [bhldn table number holder](https://wedding.allwomenstalk.com/wedding-decorating-accessories-i-love-from-bhldn/)
-- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [8 Advantages of a Winter Wedding](https://wedding.allwomenstalk.com/8-advantages-of-a-winter-wedding/)
-- [loreal smoky timeless spark](https://wedding.allwomenstalk.com/5-etsy-wedding-finds-for-the-non-diy-bride/)
-- [wedding stiletto heels](https://wedding.allwomenstalk.com/5-high-heels-to-spice-up-your-wedding/)
-- [katherine heigl scar](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
+- [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [potted plants for wedding ceremony](https://wedding.allwomenstalk.com/5-fantastic-potted-plant-wedding-ideas/)
+- [bhldn table number holder](https://wedding.allwomenstalk.com/wedding-decorating-accessories-i-love-from-bhldn/)
+- [katherine heigl scar](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
+- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
+- [bridal jitters](https://wedding.allwomenstalk.com/8-ways-to-handle-pre-wedding-jitters/)
+- [wedding stiletto heels](https://wedding.allwomenstalk.com/5-high-heels-to-spice-up-your-wedding/)
+- [loreal smoky timeless spark](https://wedding.allwomenstalk.com/5-etsy-wedding-finds-for-the-non-diy-bride/)
+- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [7 Bridal Fashion Tips for Stylish Brides ...](https://wedding.allwomenstalk.com/bridal-fashion-tips-for-stylish-brides/)
 - [7 Cute Ideas for Family Portraits ...](https://parenting.allwomenstalk.com/cute-ideas-for-family-portraits/)
 

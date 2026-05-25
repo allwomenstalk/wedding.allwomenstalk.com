@@ -56,16 +56,16 @@ Deciding on a playlist for your wedding can be tedious and stressful, let this l
 
 ## Related Posts
 
+- [best ed sheeran song lyrics](https://celebs.allwomenstalk.com/best-ed-sheeran-lyrics/)
 - [songs to win your ex back](https://love.allwomenstalk.com/best-songs-to-get-over-your-ex/)
-- [study time songs](https://lifestyle.allwomenstalk.com/songs-for-your-study-playlist/)
-- [dance with my daddy](https://wedding.allwomenstalk.com/fabulous-father-daughter-dance-songs/)
-- [clean good songs](https://lifestyle.allwomenstalk.com/songs-to-clean-your-house-to/)
-- [girl power anthems](https://lifestyle.allwomenstalk.com/girl-power-anthems/)
+- [festivals like warped tour](https://travel.allwomenstalk.com/amazing-music-festivals-to-attend-in/)
 - [bruno mars best dance song](https://lifestyle.allwomenstalk.com/dance-songs-to-run-to/)
 - [upbeat cheer songs](https://lifestyle.allwomenstalk.com/songs-to-cheer-you-up/)
-- [festivals like warped tour](https://travel.allwomenstalk.com/amazing-music-festivals-to-attend-in/)
+- [clean good songs](https://lifestyle.allwomenstalk.com/songs-to-clean-your-house-to/)
+- [dance with my daddy](https://wedding.allwomenstalk.com/fabulous-father-daughter-dance-songs/)
 - [best songs for a road trip](https://lifestyle.allwomenstalk.com/songs-for-your-road-trip-playlist/)
-- [best ed sheeran song lyrics](https://celebs.allwomenstalk.com/best-ed-sheeran-lyrics/)
+- [girl power anthems](https://lifestyle.allwomenstalk.com/girl-power-anthems/)
+- [study time songs](https://lifestyle.allwomenstalk.com/songs-for-your-study-playlist/)
 - [8 Romantic Slow-Dancing Songs ...](https://lifestyle.allwomenstalk.com/romantic-slow-dancing-songs/)
 - [7 Music Videos You Will Love ...](https://lifestyle.allwomenstalk.com/music-videos-you-will-love/)
 

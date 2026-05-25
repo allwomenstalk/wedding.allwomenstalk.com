@@ -44,16 +44,16 @@ Even though wedding fever can consume and overwhelm you, try to remember that th
 
 ## Related Posts
 
-- [how often should you wash your jeans](https://fashion.allwomenstalk.com/signs-you-may-be-wearing-too-much-of-one-color/)
+- [signs your boyfriend wants you to lose weight](https://diet.allwomenstalk.com/signs-your-friends-are-making-you-fat/)
+- [nonchalant](https://lifestyle.allwomenstalk.com/signs-of-a-selfish-person-that-you-should-pay-attention-to/)
 - [a moody person](https://lifestyle.allwomenstalk.com/signs-of-excessive-moodiness/)
 - [signs you have outgrown your friends](https://lifestyle.allwomenstalk.com/signs-youve-outgrown-your-friends/)
-- [nonchalant](https://lifestyle.allwomenstalk.com/signs-of-a-selfish-person-that-you-should-pay-attention-to/)
-- [what is a bibliophile](https://books.allwomenstalk.com/sure-signs-youre-a-bibliophile/)
 - [complete family drawing](https://parenting.allwomenstalk.com/ways-to-know-when-your-familys-complete/)
 - [signs of a people pleaser](https://lifestyle.allwomenstalk.com/signs-you-are-a-people-pleaser-and-dont-know-it/)
-- [the victim card](https://inspiration.allwomenstalk.com/signs-you-might-be-playing-the-victim-card-and-how-to-stop/)
-- [signs your boyfriend wants you to lose weight](https://diet.allwomenstalk.com/signs-your-friends-are-making-you-fat/)
 - [my friends jot mom](https://lifestyle.allwomenstalk.com/signs-youre-the-mom-of-your-friend-group/)
+- [the victim card](https://inspiration.allwomenstalk.com/signs-you-might-be-playing-the-victim-card-and-how-to-stop/)
+- [how often should you wash your jeans](https://fashion.allwomenstalk.com/signs-you-may-be-wearing-too-much-of-one-color/)
+- [what is a bibliophile](https://books.allwomenstalk.com/sure-signs-youre-a-bibliophile/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 - [7 Clues You Are Ready for Marriage ...](https://allwomenstalk.com/7-clues-you-are-ready-for-marriage/)
 

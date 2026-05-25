@@ -68,16 +68,16 @@ _Top Photo_
 
 ## Related Posts
 
-- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
-- [fall apple decorations](https://wedding.allwomenstalk.com/apple-decor-wedding-ideas-for-fall/)
-- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
-- [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
-- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
-- [weird wedding cakes](https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/)
-- [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
-- [deceased parent on wedding invitation](https://wedding.allwomenstalk.com/beautiful-ways-to-remember-a-deceased-parent-at-your-wedding/)
-- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
 - [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
+- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
+- [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
+- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
+- [fall apple decorations](https://wedding.allwomenstalk.com/apple-decor-wedding-ideas-for-fall/)
+- [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
+- [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
+- [weird wedding cakes](https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/)
+- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
+- [deceased parent on wedding invitation](https://wedding.allwomenstalk.com/beautiful-ways-to-remember-a-deceased-parent-at-your-wedding/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
 

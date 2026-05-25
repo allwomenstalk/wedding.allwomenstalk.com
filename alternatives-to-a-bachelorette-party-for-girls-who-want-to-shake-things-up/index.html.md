@@ -56,16 +56,16 @@ Traditional bachelorette parties are a thing of the past. Talk with the bride an
 
 ## Related Posts
 
-- [lounge in orange county](https://food.allwomenstalk.com/best-bars-in-orange-county/)
-- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
-- [fun places to go on the weekend](https://lifestyle.allwomenstalk.com/fun-things-to-do-to-have-the-best-weekend-ever/)
-- [myfundate](https://love.allwomenstalk.com/fun-date-ideas/)
-- [cute couple bucket list](https://love.allwomenstalk.com/things-to-put-on-a-couples-bucket-list/)
 - [cheap hangout ideas](https://lifestyle.allwomenstalk.com/best-ways-to-have-fun-when-youre-broke-af/)
-- [things to add to a bucket list](https://lifestyle.allwomenstalk.com/things-to-add-to-bucket-list/)
-- [what to put in a easter basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets-2/)
-- [fun things for dogs to do](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-dog/)
+- [fun places to go on the weekend](https://lifestyle.allwomenstalk.com/fun-things-to-do-to-have-the-best-weekend-ever/)
 - [best friend summer bucket list ideas](https://lifestyle.allwomenstalk.com/grab-your-gal-pals-and-take-on-this-ultimate-bff-bucket-list/)
+- [fun things for dogs to do](https://lifestyle.allwomenstalk.com/fun-things-to-do-with-your-dog/)
+- [lounge in orange county](https://food.allwomenstalk.com/best-bars-in-orange-county/)
+- [things to add to a bucket list](https://lifestyle.allwomenstalk.com/things-to-add-to-bucket-list/)
+- [fun fathers day activities](https://lifestyle.allwomenstalk.com/super-exciting-activities-to-do-with-dad-on-fathers-day/)
+- [cute couple bucket list](https://love.allwomenstalk.com/things-to-put-on-a-couples-bucket-list/)
+- [myfundate](https://love.allwomenstalk.com/fun-date-ideas/)
+- [what to put in a easter basket](https://parenting.allwomenstalk.com/fun-things-to-put-in-your-childrens-easter-baskets-2/)
 - [5 Great Places for a Bachelorette Party](https://wedding.allwomenstalk.com/5-great-places-for-a-bachelorette-party/)
 - [5 Ways to Find Ideas outside the Wedding Box ...](https://wedding.allwomenstalk.com/5-ways-to-find-ideas-outside-the-wedding-box/)
 

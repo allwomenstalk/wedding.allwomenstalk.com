@@ -66,16 +66,16 @@ Top Photo: [BrianDavidPhotography](https://web.archive.org/web/http://www.briand
 
 ## Related Posts
 
-- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
-- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
 - [7 Reasons to Hire a Wedding Planner ...](https://wedding.allwomenstalk.com/7-reasons-to-hire-a-wedding-planner/)
-- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
 - [loreal stylo enchanted](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
-- [kate middleton myers briggs](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-the-royal-wedding/)
-- [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
+- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
 - [royal wedding bank holiday](https://wedding.allwomenstalk.com/7-pros-and-cons-of-the-royal-wedding/)
+- [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 - [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
+- [kate middleton myers briggs](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-the-royal-wedding/)
+- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
+- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
 - [4 Inspiring Ways to Plan a Purple Wedding ...](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
 - [6 Places to Register Your Wedding ...](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
 

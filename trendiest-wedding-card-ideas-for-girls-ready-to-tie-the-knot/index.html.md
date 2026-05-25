@@ -56,16 +56,16 @@ Most of the people choose floral designs for their wedding invitations. This is 
 
 ## Related Posts
 
-- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
-- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
-- [wedding arrangements meaning](https://wedding.allwomenstalk.com/how-to-choose-wedding-flowers-based-on-their-meaning/)
-- [eloping pros and cons](https://wedding.allwomenstalk.com/the-pros-and-cons-of-eloping/)
-- [christmas wedding pictures](https://wedding.allwomenstalk.com/winter-wedding-inspiration/)
-- [cheap party themes](https://lifestyle.allwomenstalk.com/unique-party-themes-for-low-budgets/)
-- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
-- [origami wedding gift](https://wedding.allwomenstalk.com/creative-ways-to-make-your-wedding-memorable/)
 - [how to pick a wedding photographer](https://wedding.allwomenstalk.com/how-to-choose-a-wedding-photographer/)
 - [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
+- [origami wedding gift](https://wedding.allwomenstalk.com/creative-ways-to-make-your-wedding-memorable/)
+- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
+- [eloping pros and cons](https://wedding.allwomenstalk.com/the-pros-and-cons-of-eloping/)
+- [things to consider for wedding planning](https://wedding.allwomenstalk.com/important-things-to-consider-when-planning-your-wedding/)
+- [wedding arrangements meaning](https://wedding.allwomenstalk.com/how-to-choose-wedding-flowers-based-on-their-meaning/)
+- [cheap party themes](https://lifestyle.allwomenstalk.com/unique-party-themes-for-low-budgets/)
+- [christmas wedding pictures](https://wedding.allwomenstalk.com/winter-wedding-inspiration/)
+- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 

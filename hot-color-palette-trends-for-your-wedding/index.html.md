@@ -40,14 +40,14 @@ Top Photo: [StyleMePretty.com](https://www.stylemepretty.com/2010/12/17/palos-ve
 
 ## Related Posts
 
+- [trends of 2012](https://fashion.allwomenstalk.com/must-do-trends-for/)
 - [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
-- [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
-- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [2006 trends](https://allwomenstalk.com/trendy-year-wrap-up/)
-- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
 - [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/affordable-spring-trends/)
-- [trends of 2012](https://fashion.allwomenstalk.com/must-do-trends-for/)
+- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
+- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
+- [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [5 Flowers for 2011 ...](https://gardening.allwomenstalk.com/flowers-for/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [6 Creative Styles for Your Wedding Aisle ...](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)

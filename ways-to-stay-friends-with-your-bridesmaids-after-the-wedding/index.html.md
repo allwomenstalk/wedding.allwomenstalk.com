@@ -42,16 +42,16 @@ These are 7 ways to make sure that you stay friends with your bridesmaids after 
 
 ## Related Posts
 
+- [bride and dad](https://wedding.allwomenstalk.com/dads-wedding-surprise-makes-bride-and-groom-break-down-in-tears/)
 - [a wedding toast](https://wedding.allwomenstalk.com/short-and-sweet-quotes-to-use-for-a-wedding-toast/)
 - [wedding shower theme ideas for couples](https://wedding.allwomenstalk.com/unique-themes-for-the-next-bridal-shower-you-throw/)
+- [how to decline wedding invite](https://wedding.allwomenstalk.com/tips-on-how-to-say-no-to-unwanted-help-during-the-wedding-planning/)
+- [best man gift to groom](https://wedding.allwomenstalk.com/gifts-your-groom-would-love-to-have/)
+- [bridesmaid bouquets fall](https://wedding.allwomenstalk.com/stunning-fall-wedding-bouquets/)
+- [how to deal with wedding planning stress](https://wedding.allwomenstalk.com/ways-to-deal-with-wedding-planning-stress/)
 - [save the date photo ideas](https://wedding.allwomenstalk.com/save-the-date-ideas/)
 - [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
-- [bride and dad](https://wedding.allwomenstalk.com/dads-wedding-surprise-makes-bride-and-groom-break-down-in-tears/)
-- [bridesmaid bouquets fall](https://wedding.allwomenstalk.com/stunning-fall-wedding-bouquets/)
-- [best man gift to groom](https://wedding.allwomenstalk.com/gifts-your-groom-would-love-to-have/)
 - [great wedding themes](https://wedding.allwomenstalk.com/wedding-themes-for-the-best-day-of-your-life/)
-- [how to decline wedding invite](https://wedding.allwomenstalk.com/tips-on-how-to-say-no-to-unwanted-help-during-the-wedding-planning/)
-- [how to deal with wedding planning stress](https://wedding.allwomenstalk.com/ways-to-deal-with-wedding-planning-stress/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 - [7 Ways for the Single Girl to Survive a Wedding .....](https://lifestyle.allwomenstalk.com/ways-for-the-single-girl-to-survive-a-wedding/)
 

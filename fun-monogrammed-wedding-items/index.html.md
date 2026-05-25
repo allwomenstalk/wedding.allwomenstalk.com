@@ -74,16 +74,16 @@ Now that I’ve shared a few of my most loved monogrammed wedding items, head on
 
 ## Related Posts
 
-- [7 Super Fabulous Wedding Blogs That You Will Fall ...](https://wedding.allwomenstalk.com/super-fabulous-wedding-blogs-that-you-will-fall-in-love-with/)
-- [reasons to elope](https://wedding.allwomenstalk.com/best-reasons-to-elope/)
 - [how to write a good toast](https://wedding.allwomenstalk.com/amazing-tips-for-writing-a-wedding-toast/)
-- [wedding weekend activities](https://wedding.allwomenstalk.com/wedding-weekend-events-that-will-make-the-fun-last/)
-- [the monument seating chart](https://wedding.allwomenstalk.com/helpful-tips-on-how-to-make-a-seating-chart-for-your-wedding/)
+- [7 Super Fabulous Wedding Blogs That You Will Fall ...](https://wedding.allwomenstalk.com/super-fabulous-wedding-blogs-that-you-will-fall-in-love-with/)
 - [7 Things to Consider when Picking a Wedding Venue ...](https://wedding.allwomenstalk.com/things-to-consider-when-picking-a-wedding-venue/)
 - [7 Great Reasons to Plan a Destination Wedding ...](https://wedding.allwomenstalk.com/great-reasons-to-plan-a-destination-wedding/)
-- [things to think about when planning a wedding](https://wedding.allwomenstalk.com/things-to-think-about-before-planning-a-wedding/)
+- [wedding weekend activities](https://wedding.allwomenstalk.com/wedding-weekend-events-that-will-make-the-fun-last/)
 - [city hall wedding ideas](https://wedding.allwomenstalk.com/magnificent-ideas-for-a-city-hall-wedding/)
+- [the monument seating chart](https://wedding.allwomenstalk.com/helpful-tips-on-how-to-make-a-seating-chart-for-your-wedding/)
 - [wedding planning tips no one tells you](https://wedding.allwomenstalk.com/wedding-planning-blunders-of-all-time/)
+- [things to think about when planning a wedding](https://wedding.allwomenstalk.com/things-to-think-about-before-planning-a-wedding/)
+- [reasons to elope](https://wedding.allwomenstalk.com/best-reasons-to-elope/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [7 Enchantingly Classy Wedding Items Youll Probably...](https://wedding.allwomenstalk.com/enchantingly-classy-wedding-items-youll-probably-get-to-use-later/)
 

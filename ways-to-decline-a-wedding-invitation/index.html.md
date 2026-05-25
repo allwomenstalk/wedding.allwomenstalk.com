@@ -46,16 +46,16 @@ Some people get very excited about weddings, but it's not something that everyon
 
 ## Related Posts
 
-- [engagement things to do](https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/)
-- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
-- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
-- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
-- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
-- [tangled wedding ideas](https://wedding.allwomenstalk.com/great-movie-inspired-wedding-themes/)
-- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
-- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
 - [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
+- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
+- [tangled wedding ideas](https://wedding.allwomenstalk.com/great-movie-inspired-wedding-themes/)
+- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
+- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
+- [engagement things to do](https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/)
+- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
+- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
+- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 - [7 Ways to Turn down a Date ...](https://love.allwomenstalk.com/ways-to-turn-down-a-date/)
 

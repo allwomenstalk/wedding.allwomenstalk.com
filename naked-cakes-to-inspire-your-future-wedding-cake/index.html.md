@@ -179,16 +179,16 @@ What's your favorite naked wedding cake? Let me know in the comments!
 
 ## Related Posts
 
+- [wedding tipping guide](https://wedding.allwomenstalk.com/wedding-hacks-you-should-see-before-you-get-hitched/)
+- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
 - [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
-- [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
 - [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
 - [100 years of wedding dresses](https://wedding.allwomenstalk.com/years-of-engagement-rings-and-wedding-dresses/)
-- [wedding tipping guide](https://wedding.allwomenstalk.com/wedding-hacks-you-should-see-before-you-get-hitched/)
 - [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
-- [do it yourself wedding programs](https://wedding.allwomenstalk.com/programs-thatll-make-your-wedding-even-more-special/)
+- [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
 - [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
+- [do it yourself wedding programs](https://wedding.allwomenstalk.com/programs-thatll-make-your-wedding-even-more-special/)
 - [caribbean themed cake](https://wedding.allwomenstalk.com/fabulous-wedding-cake-inspiration-typically-tropical/)
-- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 

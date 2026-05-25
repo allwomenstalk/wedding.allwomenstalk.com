@@ -50,16 +50,16 @@ These are 7 ways you can wear blue at your wedding but there are certainly more.
 
 ## Related Posts
 
-- [7 Wedding Decisions That He Should Be Making or Ha...](https://wedding.allwomenstalk.com/wedding-decisions-that-he-should-be-making-or-have-input-on/)
 - [11 Intriguing Ways to Make Your Wedding Amazing .....](https://wedding.allwomenstalk.com/intriguing-ways-to-make-your-wedding-amazing/)
-- [planning outdoor wedding](https://wedding.allwomenstalk.com/things-to-consider-when-youre-planning-an-outdoor-wedding/)
 - [7 Reasons to Hire a Wedding Planner and Avoid Beco...](https://wedding.allwomenstalk.com/reasons-to-hire-a-wedding-planner-and-avoid-becoming-a-bridezilla/)
-- [keeping kids busy at weddings](https://wedding.allwomenstalk.com/ways-to-keep-kids-busy-at-your-wedding/)
-- [bridal shower gift themes](https://wedding.allwomenstalk.com/bridal-shower-gift-themes-for-an-unforgettable-party/)
 - [7 Ways to Honor Lost Loved Ones at Your Wedding .....](https://wedding.allwomenstalk.com/ways-to-honor-lost-loved-ones-at-your-wedding/)
-- [7 Wedding Checklists You Need to Make ...](https://wedding.allwomenstalk.com/wedding-checklists-you-need-to-make/)
-- [7 Strong Reasons to Write Your Own Wedding Vows .....](https://wedding.allwomenstalk.com/strong-reasons-to-write-your-own-wedding-vows/)
+- [7 Wedding Decisions That He Should Be Making or Ha...](https://wedding.allwomenstalk.com/wedding-decisions-that-he-should-be-making-or-have-input-on/)
+- [bridal shower gift themes](https://wedding.allwomenstalk.com/bridal-shower-gift-themes-for-an-unforgettable-party/)
 - [7 Ways to Be a Happier Bride ...](https://wedding.allwomenstalk.com/ways-to-be-a-happier-bride/)
+- [planning outdoor wedding](https://wedding.allwomenstalk.com/things-to-consider-when-youre-planning-an-outdoor-wedding/)
+- [keeping kids busy at weddings](https://wedding.allwomenstalk.com/ways-to-keep-kids-busy-at-your-wedding/)
+- [7 Strong Reasons to Write Your Own Wedding Vows .....](https://wedding.allwomenstalk.com/strong-reasons-to-write-your-own-wedding-vows/)
+- [7 Wedding Checklists You Need to Make ...](https://wedding.allwomenstalk.com/wedding-checklists-you-need-to-make/)
 - [6 Creative Styles for Your Wedding Aisle ...](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
 - [7 Bridal Fashion Tips for Stylish Brides ...](https://wedding.allwomenstalk.com/bridal-fashion-tips-for-stylish-brides/)
 

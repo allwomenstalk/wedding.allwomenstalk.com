@@ -92,16 +92,16 @@ Top Photo Credit_
 
 ## Related Posts
 
-- [mr adorable](https://wedding.allwomenstalk.com/adorable-mr-mrs-wedding-items-to-buy/)
+- [fall apple decorations](https://wedding.allwomenstalk.com/apple-decor-wedding-ideas-for-fall/)
+- [tips on how to reduce wedding costs](https://wedding.allwomenstalk.com/smart-ways-to-cut-costs-for-your-wedding/)
 - [transportation ideas for wedding](https://wedding.allwomenstalk.com/fun-wedding-transportation-ideas-2/)
+- [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
+- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
+- [wedding at dia](https://wedding.allwomenstalk.com/ways-to-plan-a-dia-de-los-muertos-wedding/)
+- [mr adorable](https://wedding.allwomenstalk.com/adorable-mr-mrs-wedding-items-to-buy/)
 - [diy wedding present](https://wedding.allwomenstalk.com/diy-gifts-for-a-bride-and-groom/)
 - [wedding titles ideas](https://wedding.allwomenstalk.com/unconventional-wedding-ideas/)
 - [unique wedding venue](https://wedding.allwomenstalk.com/unusual-locations-for-a-wedding/)
-- [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
-- [wedding at dia](https://wedding.allwomenstalk.com/ways-to-plan-a-dia-de-los-muertos-wedding/)
-- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
-- [tips on how to reduce wedding costs](https://wedding.allwomenstalk.com/smart-ways-to-cut-costs-for-your-wedding/)
-- [fall apple decorations](https://wedding.allwomenstalk.com/apple-decor-wedding-ideas-for-fall/)
 - [8 Exotic Wedding Themes Your Guests Will Love ...](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
 - [8 Amazingly Unique Ideas for Winter Wedding Invita...](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
 

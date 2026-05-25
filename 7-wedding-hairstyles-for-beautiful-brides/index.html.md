@@ -44,16 +44,16 @@ Top Photo Credit: [Princess Tat of Tinkle Shed](https://www.flickr.com/photos/go
 
 ## Related Posts
 
-- [plus size wedding hairstyles](https://wedding.allwomenstalk.com/bridal-hairstyles-that-work-for-everyone/)
-- [short bob bridal hair](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [cute ponytails](https://hair.allwomenstalk.com/ponytails-that-look-adorable/)
-- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
-- [wedding hairdos](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
-- [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
+- [short bob bridal hair](https://wedding.allwomenstalk.com/7-bridal-hairstyles-for-short-hair/)
 - [elegantly fashionable](https://hair.allwomenstalk.com/elegantly-fashionable-ways-to-style-your-curly-hair/)
-- [sexiest brides](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
-- [cassie short hair](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
+- [plus size wedding hairstyles](https://wedding.allwomenstalk.com/bridal-hairstyles-that-work-for-everyone/)
+- [wedding hairdos](https://wedding.allwomenstalk.com/9-wedding-hairdos-that-look-spectacular/)
 - [celebrity haircuts](https://hair.allwomenstalk.com/fabulous-celebrity-hair-cuts/)
+- [sexiest brides](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
+- [wings in your hair](https://hair.allwomenstalk.com/pretty-things-for-your-hair-from-mod-cloth/)
+- [cassie short hair](https://celebs.allwomenstalk.com/sexiest-badass-celebrity-hair-styles/)
+- [7 Funkiest Celebrity Hairstyles ...](https://celebs.allwomenstalk.com/7-funkiest-celebrity-hairstyles/)
 - [7 Classic Hairstyles to Try ...](https://hair.allwomenstalk.com/7-classic-hairstyles-to-try/)
 - [7 Stylish Hairdos That Are Perfect for Prom ...](https://hair.allwomenstalk.com/stylish-hairdos-that-are-perfect-for-prom/)
 

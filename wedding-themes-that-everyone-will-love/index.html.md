@@ -42,15 +42,15 @@ I just love these wedding themes…I’m planning a 1920s style day now, and get
 
 ## Related Posts
 
-- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
-- [7 ways to honor your mother](https://wedding.allwomenstalk.com/special-ways-to-honor-mom-at-your-wedding/)
-- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
-- [best gift for friends wedding female](https://wedding.allwomenstalk.com/wedding-gifts-for-your-best-friends/)
-- [memorial table ideas](https://wedding.allwomenstalk.com/heartfelt-wedding-memorial-ideas/)
-- [ways to display photos at wedding](https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/)
-- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
-- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
 - [what is bride garter](https://wedding.allwomenstalk.com/creative-wedding-garter-ideas/)
+- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
+- [ways to display photos at wedding](https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/)
+- [7 ways to honor your mother](https://wedding.allwomenstalk.com/special-ways-to-honor-mom-at-your-wedding/)
+- [memorial table ideas](https://wedding.allwomenstalk.com/heartfelt-wedding-memorial-ideas/)
+- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
+- [best gift for friends wedding female](https://wedding.allwomenstalk.com/wedding-gifts-for-your-best-friends/)
+- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
+- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
 - [hot wedding photo](https://wedding.allwomenstalk.com/hot-wedding-photography-trends-for/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [7 Adorable Baby Shower Themes ...](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)

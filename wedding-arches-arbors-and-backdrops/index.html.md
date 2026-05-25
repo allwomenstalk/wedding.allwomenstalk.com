@@ -314,16 +314,16 @@ Are you planning or dreaming of your big day?
 
 ## Related Posts
 
-- [Swoon These 27 Same-sex Wedding Photos Prove That ...](https://wedding.allwomenstalk.com/swoon-these-same-sex-wedding-photos-prove-that-love-is-love/)
-- [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
 - [how to make a bridal veil with comb](https://diy.allwomenstalk.com/wonderfully-beautiful-wedding-veils-you-can-make-yourself/)
-- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
-- [underwater weddings](https://wedding.allwomenstalk.com/girls-who-channelled-their-inner-mermaid-underwater-weddings/)
 - [superhero groomsmen](https://wedding.allwomenstalk.com/an-album-of-some-of-the-funniest-wedding-photos-in-the-world-wait-till-you-see-40/)
-- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
 - [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
-- [infographic wedding](https://wedding.allwomenstalk.com/make-it-the-best-day-ever-wedding-infographics-for-all-you-need-to-know/)
+- [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
+- [Swoon These 27 Same-sex Wedding Photos Prove That ...](https://wedding.allwomenstalk.com/swoon-these-same-sex-wedding-photos-prove-that-love-is-love/)
+- [underwater weddings](https://wedding.allwomenstalk.com/girls-who-channelled-their-inner-mermaid-underwater-weddings/)
+- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
 - [chart wedding dress types](https://wedding.allwomenstalk.com/wedding-dress-infographics-every-girl-needs-to-have-at-hand/)
+- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
+- [infographic wedding](https://wedding.allwomenstalk.com/make-it-the-best-day-ever-wedding-infographics-for-all-you-need-to-know/)
 - [4 Sweet  Simple Wedding Bouquets ...](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
 - [8 Gorgeous Wedding Veils ...](https://wedding.allwomenstalk.com/8-gorgeous-wedding-veils/)
 

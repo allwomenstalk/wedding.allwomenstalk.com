@@ -44,16 +44,16 @@ Top image source: [blog.bridepower.com](https://web.archive.org/web/http://blog.
 
 ## Related Posts
 
-- [blackening of the bride](https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/)
 - [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
+- [blackening of the bride](https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/)
+- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
 - [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
 - [5 Tips on Technology and Wedding Planning ...](https://wedding.allwomenstalk.com/tips-on-technology-and-wedding-planning/)
-- [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
-- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
+- [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
 - [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
 - [6 Ways to Color a Star Spangled Wedding ...](https://wedding.allwomenstalk.com/ways-to-color-a-star-spangled-wedding/)
-- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
-- [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
+- [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
+- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [7 Fantastic Winter Wedding Ideas ...](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
 

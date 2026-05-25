@@ -42,16 +42,16 @@ I’ve only seen poor wedding toasts in movies, but I would be horrified if my w
 
 ## Related Posts
 
-- [the monument seating chart](https://wedding.allwomenstalk.com/helpful-tips-on-how-to-make-a-seating-chart-for-your-wedding/)
 - [9 Ways to Avoid Post-wedding Blues ...](https://wedding.allwomenstalk.com/ways-to-avoid-post-wedding-blues/)
-- [7 Great Reasons to Plan a Destination Wedding ...](https://wedding.allwomenstalk.com/great-reasons-to-plan-a-destination-wedding/)
-- [city hall wedding ideas](https://wedding.allwomenstalk.com/magnificent-ideas-for-a-city-hall-wedding/)
-- [amazing.maiid](https://wedding.allwomenstalk.com/great-ways-to-be-an-amazing-maid-of-honor/)
 - [things to think about when planning a wedding](https://wedding.allwomenstalk.com/things-to-think-about-before-planning-a-wedding/)
-- [reasons to elope](https://wedding.allwomenstalk.com/best-reasons-to-elope/)
+- [city hall wedding ideas](https://wedding.allwomenstalk.com/magnificent-ideas-for-a-city-hall-wedding/)
 - [ts pic](https://wedding.allwomenstalk.com/engagement-photo-dos-and-donts-to-follow/)
+- [amazing.maiid](https://wedding.allwomenstalk.com/great-ways-to-be-an-amazing-maid-of-honor/)
+- [reasons to elope](https://wedding.allwomenstalk.com/best-reasons-to-elope/)
 - [wedding weekend activities](https://wedding.allwomenstalk.com/wedding-weekend-events-that-will-make-the-fun-last/)
 - [7 Unique Wedding DIY Inspirations for a Beautiful ...](https://diy.allwomenstalk.com/unique-wedding-diy-inspirations-for-a-beautiful-wedding/)
+- [the monument seating chart](https://wedding.allwomenstalk.com/helpful-tips-on-how-to-make-a-seating-chart-for-your-wedding/)
+- [7 Great Reasons to Plan a Destination Wedding ...](https://wedding.allwomenstalk.com/great-reasons-to-plan-a-destination-wedding/)
 - [7 Tips for Writing an Awesome Wedding Toast ...](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 

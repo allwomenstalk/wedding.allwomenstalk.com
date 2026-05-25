@@ -42,16 +42,16 @@ These are some common mistakes that are made when wedding dress shopping. Have y
 
 ## Related Posts
 
-- [grey and blue wedding theme](https://wedding.allwomenstalk.com/gorgeous-wedding-color-schemes-for/)
-- [best dance moves to break out at a wedding](https://wedding.allwomenstalk.com/best-wedding-dance-videos/)
-- [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
-- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
-- [briana evigan married](https://wedding.allwomenstalk.com/beautiful-wedding-videos-that-will-make-you-teary-eyed/)
-- [the week before the wedding](https://wedding.allwomenstalk.com/things-you-should-do-the-week-before-your-wedding/)
-- [wedding shape](https://fitness.allwomenstalk.com/easy-ways-to-shape-up-for-your-wedding-day/)
 - [divergent theme](https://wedding.allwomenstalk.com/ways-to-have-a-divergent-themed-wedding/)
+- [wedding shape](https://fitness.allwomenstalk.com/easy-ways-to-shape-up-for-your-wedding-day/)
+- [groom carries bride across threshold](https://wedding.allwomenstalk.com/wedding-traditions-and-their-origins/)
+- [best dance moves to break out at a wedding](https://wedding.allwomenstalk.com/best-wedding-dance-videos/)
+- [briana evigan married](https://wedding.allwomenstalk.com/beautiful-wedding-videos-that-will-make-you-teary-eyed/)
+- [grey and blue wedding theme](https://wedding.allwomenstalk.com/gorgeous-wedding-color-schemes-for/)
+- [wedding crashers negativity](https://wedding.allwomenstalk.com/worst-wedding-guests-that-can-ruin-any-wedding/)
 - [alternative marriage arrangements](https://love.allwomenstalk.com/alternatives-to-traditional-marriage-many-women-are-embracing/)
 - [unconventional wedding venues](https://wedding.allwomenstalk.com/unconventional-wedding-venues-that-are-absolutely-beautiful/)
+- [the week before the wedding](https://wedding.allwomenstalk.com/things-you-should-do-the-week-before-your-wedding/)
 - [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
 - [7 Shopping Mistakes ...](https://lifestyle.allwomenstalk.com/7-shopping-mistakes/)
 

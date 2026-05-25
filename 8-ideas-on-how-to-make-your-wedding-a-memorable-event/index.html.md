@@ -48,16 +48,16 @@ Top Photo Credit: [grammyandpoppyk](https://www.flickr.com/photos/bunnykasper/33
 
 ## Related Posts
 
-- [4 Wedding Inspiration Ideas: Teacups  Teapots ...](https://wedding.allwomenstalk.com/wedding-inspiration-teacups-teapots/)
+- [kate middleton myers briggs](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-the-royal-wedding/)
+- [royal wedding bank holiday](https://wedding.allwomenstalk.com/7-pros-and-cons-of-the-royal-wedding/)
 - [best cupcakes for wedding](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
+- [4 Very Cool Wedding Reception Locations ...](https://wedding.allwomenstalk.com/4-very-cool-wedding-reception-locations/)
+- [4 Wedding Inspiration Ideas: Teacups  Teapots ...](https://wedding.allwomenstalk.com/wedding-inspiration-teacups-teapots/)
+- [cameo wedding](https://wedding.allwomenstalk.com/4-etsy-wedding-accessories-for-your-cameo-theme/)
+- [sunflower weddings](https://wedding.allwomenstalk.com/decor-ideas-for-your-sunflower-wedding/)
+- [loreal le shadow primped and](https://wedding.allwomenstalk.com/adorable-save-the-date-ideas/)
 - [unique place card ideas](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [5 Ways to Celebrate Your Wedding Anniversary ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-wedding-anniversary/)
-- [loreal le shadow primped and](https://wedding.allwomenstalk.com/adorable-save-the-date-ideas/)
-- [sunflower weddings](https://wedding.allwomenstalk.com/decor-ideas-for-your-sunflower-wedding/)
-- [cameo wedding](https://wedding.allwomenstalk.com/4-etsy-wedding-accessories-for-your-cameo-theme/)
-- [4 Very Cool Wedding Reception Locations ...](https://wedding.allwomenstalk.com/4-very-cool-wedding-reception-locations/)
-- [royal wedding bank holiday](https://wedding.allwomenstalk.com/7-pros-and-cons-of-the-royal-wedding/)
-- [kate middleton myers briggs](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-the-royal-wedding/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [8 Tips on Having the Perfect Wedding ...](https://wedding.allwomenstalk.com/8-tips-on-having-the-perfect-wedding/)
 

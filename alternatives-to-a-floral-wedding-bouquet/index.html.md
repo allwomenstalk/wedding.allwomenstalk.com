@@ -42,16 +42,16 @@ While flowers are always acceptable to carry down the aisle, sometime a fresh ta
 
 ## Related Posts
 
-- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
-- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
-- [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
 - [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
-- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
-- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
-- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
+- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
 - [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
+- [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
+- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
+- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
 - [8 year anniversary gift traditional](https://wedding.allwomenstalk.com/first-wedding-anniversary-gift-ideas/)
+- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
+- [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
 - [6 Unique Wedding Bouquets That Will Last Forever ....](https://wedding.allwomenstalk.com/6-unique-wedding-bouquets-that-will-last-forever/)
 - [4 Sweet  Simple Wedding Bouquets ...](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
 

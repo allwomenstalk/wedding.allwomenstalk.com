@@ -48,16 +48,16 @@ Top Photo Credit: [freemysoul](https://www.flickr.com/photos/fms-sabine/46410786
 
 ## Related Posts
 
-- [cinco de mayo wedding anniversary](https://wedding.allwomenstalk.com/reasons-to-celebrate-a-cinco-de-mayo-wedding/)
-- [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
-- [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
-- [valentines wedding theme](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-a-colorful-valentines-day/)
 - [DIY Wedding Ideas on a Budget: Guest Blogger Poppi...](https://wedding.allwomenstalk.com/diy-wedding-ideas-on-a-budget-guest-blogger-poppies-sunshine/)
-- [Engaged with a Cause: above and beyond the Wedding...](https://wedding.allwomenstalk.com/engaged-with-a-cause-above-and-beyond-the-wedding-industry/)
-- [benefits of destination wedding](https://wedding.allwomenstalk.com/reasons-to-have-a-destination-wedding/)
-- [7 Things to Think about when Choosing Your Wedding...](https://wedding.allwomenstalk.com/7-things-to-think-about-when-choosing-your-wedding-photographer/)
+- [valentines wedding theme](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-a-colorful-valentines-day/)
 - [For Japan with Love: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/for-japan-with-love-above-and-beyond-the-wedding-industry/)
+- [cinco de mayo wedding anniversary](https://wedding.allwomenstalk.com/reasons-to-celebrate-a-cinco-de-mayo-wedding/)
+- [7 Things to Think about when Choosing Your Wedding...](https://wedding.allwomenstalk.com/7-things-to-think-about-when-choosing-your-wedding-photographer/)
+- [Engaged with a Cause: above and beyond the Wedding...](https://wedding.allwomenstalk.com/engaged-with-a-cause-above-and-beyond-the-wedding-industry/)
 - [bridal shower ideas themes](https://wedding.allwomenstalk.com/theme-ideas-for-a-bridal-shower/)
+- [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
+- [benefits of destination wedding](https://wedding.allwomenstalk.com/reasons-to-have-a-destination-wedding/)
+- [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 - [8 Must Know Truths about Marriage ...](https://wedding.allwomenstalk.com/8-must-know-truths-about-marriage/)
 - [5 Things Every to-Be Bride Should Know before Her ...](https://allwomenstalk.com/things-every-to-be-bride-should-know-before-her-wedding/)
 

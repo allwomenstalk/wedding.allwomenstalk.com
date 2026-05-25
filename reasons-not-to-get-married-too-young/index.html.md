@@ -46,16 +46,16 @@ What do you think, ladies, are these on your list of reasons not to get married 
 
 ## Related Posts
 
+- [everyone makes mistakes in life](https://lifestyle.allwomenstalk.com/reasons-why-it-is-okay-to-make-mistakes/)
+- [why does everyone have different opinions](https://lifestyle.allwomenstalk.com/reasons-its-okay-to-have-different-opinions/)
+- [why should i forgive someone](https://lifestyle.allwomenstalk.com/reasons-to-forgive/)
+- [walking in 5 inch heels](https://shoes.allwomenstalk.com/reasons-not-to-wear-high-heels/)
+- [reasons to not get a puppy](https://lifestyle.allwomenstalk.com/reasons-not-to-get-a-puppy/)
 - [early 20s](https://lifestyle.allwomenstalk.com/reasons-why-life-in-your-early-twenties-is-actually-a-bit-rubbish/)
 - [real fur blanket](https://fashion.allwomenstalk.com/reasons-not-to-wear-real-fur/)
 - [is social media ruining society](https://lifestyle.allwomenstalk.com/reasons-why-social-media-is-ruining-our-lives/)
-- [walking in 5 inch heels](https://shoes.allwomenstalk.com/reasons-not-to-wear-high-heels/)
-- [ive never been in a relationship before](https://love.allwomenstalk.com/reasons-why-its-okay-if-you-havent-been-in-a-relationship-yet/)
-- [why should i forgive someone](https://lifestyle.allwomenstalk.com/reasons-to-forgive/)
 - [should kids be on social media](https://parenting.allwomenstalk.com/reasons-not-to-let-your-kids-get-on-social-networking-sites/)
-- [reasons to not get a puppy](https://lifestyle.allwomenstalk.com/reasons-not-to-get-a-puppy/)
-- [why does everyone have different opinions](https://lifestyle.allwomenstalk.com/reasons-its-okay-to-have-different-opinions/)
-- [everyone makes mistakes in life](https://lifestyle.allwomenstalk.com/reasons-why-it-is-okay-to-make-mistakes/)
+- [ive never been in a relationship before](https://love.allwomenstalk.com/reasons-why-its-okay-if-you-havent-been-in-a-relationship-yet/)
 - [7 Reasons Some People Hate Being Married ...](https://wedding.allwomenstalk.com/7-reasons-some-people-hate-being-married/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)
 

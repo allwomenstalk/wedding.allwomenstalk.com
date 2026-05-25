@@ -42,16 +42,16 @@ These are some ways you can handle badly behaved wedding guests. What have you c
 
 ## Related Posts
 
-- [7 Steps to Asking for Forgiveness ...](https://love.allwomenstalk.com/steps-to-asking-for-forgiveness/)
-- [7 Important Things to Say to Someone Who is Depres...](https://health.allwomenstalk.com/important-things-to-say-to-someone-who-is-depressed/)
-- [think twice before acting](https://lifestyle.allwomenstalk.com/things-you-should-think-about-before-being-rude-online/)
-- [maintaining long distance friendships](https://lifestyle.allwomenstalk.com/ways-to-maintain-friendships-with-long-distance-friends/)
-- [7 Tips on How to Stop Being a People Pleaser ...](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-being-a-people-pleaser/)
 - [7 Tips for Talking to a Grandparent with Dementia ...](https://health.allwomenstalk.com/tips-for-talking-to-a-grandparent-with-dementia/)
-- [7 Ways to Deal with Selfish People ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-selfish-people/)
+- [7 Important Things to Say to Someone Who is Depres...](https://health.allwomenstalk.com/important-things-to-say-to-someone-who-is-depressed/)
 - [how to take possession of a car you cosigned for](https://money.allwomenstalk.com/ways-to-make-your-cosigner-feel-at-ease/)
-- [How to Help a Family Member Suffering from Depress...](https://health.allwomenstalk.com/tips-on-how-to-deal-with-a-depressed-family-member/)
+- [7 Steps to Asking for Forgiveness ...](https://love.allwomenstalk.com/steps-to-asking-for-forgiveness/)
+- [7 Tips on How to Stop Being a People Pleaser ...](https://inspiration.allwomenstalk.com/tips-on-how-to-stop-being-a-people-pleaser/)
 - [The Smoothest Ways to Get through Any Conflict ...](https://inspiration.allwomenstalk.com/ways-to-get-through-conflict-quickly-and-easily/)
+- [think twice before acting](https://lifestyle.allwomenstalk.com/things-you-should-think-about-before-being-rude-online/)
+- [7 Ways to Deal with Selfish People ...](https://inspiration.allwomenstalk.com/ways-to-deal-with-selfish-people/)
+- [maintaining long distance friendships](https://lifestyle.allwomenstalk.com/ways-to-maintain-friendships-with-long-distance-friends/)
+- [How to Help a Family Member Suffering from Depress...](https://health.allwomenstalk.com/tips-on-how-to-deal-with-a-depressed-family-member/)
 - [7 Ways to Deal with Annoying Co-Passengers ...](https://travel.allwomenstalk.com/ways-to-deal-with-annoying-co-passengers/)
 - [7 Ways to Deal with a Difficult Daughter-in-Law .....](https://lifestyle.allwomenstalk.com/ways-to-deal-with-a-difficult-daughter-in-law/)
 

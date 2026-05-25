@@ -79,16 +79,16 @@ Why not let your guests have some chalkboard paint fun too when you send them ho
 
 ## Related Posts
 
-- [vegas wedding inspo](https://wedding.allwomenstalk.com/fun-ideas-for-a-sparkly-wedding-theme/)
-- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
-- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
-- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
-- [engagement things to do](https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/)
-- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
 - [wedding songs 2014](https://wedding.allwomenstalk.com/of-the-most-annoying-wedding-songs-ever/)
-- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
+- [vegas wedding inspo](https://wedding.allwomenstalk.com/fun-ideas-for-a-sparkly-wedding-theme/)
 - [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
+- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
+- [engagement things to do](https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/)
+- [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
 - [tangled wedding ideas](https://wedding.allwomenstalk.com/great-movie-inspired-wedding-themes/)
+- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
+- [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
+- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 

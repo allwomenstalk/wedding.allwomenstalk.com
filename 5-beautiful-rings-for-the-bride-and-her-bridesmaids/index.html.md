@@ -54,16 +54,16 @@ After being inspired by Diana's giveaway I was inspired to post about **rings** 
 
 ## Related Posts
 
-- [elegant bridal jewelry sets](https://wedding.allwomenstalk.com/fabulously-glamorous-bridal-jewelry-sets/)
-- [princess wedding hair](https://wedding.allwomenstalk.com/4-bridal-hair-accessories-for-the-royal-princess/)
-- [how to pick bridal jewelry](https://wedding.allwomenstalk.com/surefire-tips-to-keep-in-mind-when-buying-bridal-jewelry/)
 - [loreal paris color le stylo eye amour](https://cooking.allwomenstalk.com/7-lovely-sets-of-dishes/)
-- [silybands](https://parenting.allwomenstalk.com/7-cute-silly-bandz/)
 - [mother of bride bracelet](https://wedding.allwomenstalk.com/giveaway-the-lucky-elephant-bridal-bracelet/)
 - [tuxedo for ring bearer](https://wedding.allwomenstalk.com/5-adorable-ring-bearers-and-their-cute-suits/)
-- [cool pink flowers](https://gardening.allwomenstalk.com/5-cool-pink-flowers/)
+- [elegant bridal jewelry sets](https://wedding.allwomenstalk.com/fabulously-glamorous-bridal-jewelry-sets/)
+- [how to pick bridal jewelry](https://wedding.allwomenstalk.com/surefire-tips-to-keep-in-mind-when-buying-bridal-jewelry/)
 - [george kunz tiffany](https://jewelry.allwomenstalk.com/8-amazing-brooches-by-tiffany/)
 - [bright dress for wedding](https://wedding.allwomenstalk.com/ways-to-go-bright-bold-with-bridal-jewelry/)
+- [cool pink flowers](https://gardening.allwomenstalk.com/5-cool-pink-flowers/)
+- [princess wedding hair](https://wedding.allwomenstalk.com/4-bridal-hair-accessories-for-the-royal-princess/)
+- [silybands](https://parenting.allwomenstalk.com/7-cute-silly-bandz/)
 - [5 Lovely Bridal Accessories in Hot Metallic Colors...](https://wedding.allwomenstalk.com/5-lovely-bridal-accessories-in-hot-metallic-colors/)
 - [5 Bridesmaid Clutches Shed Love to Have ...](https://wedding.allwomenstalk.com/5-bridesmaid-clutches-shed-love-to-have/)
 

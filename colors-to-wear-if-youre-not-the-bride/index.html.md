@@ -44,16 +44,16 @@ Top Photo Credit: [Alaskan Dude](https://www.flickr.com/photos/72213316@N00/4467
 
 ## Related Posts
 
-- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
-- [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
-- [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
+- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
+- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
+- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [6 Ways to Color a Star Spangled Wedding ...](https://wedding.allwomenstalk.com/ways-to-color-a-star-spangled-wedding/)
 - [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
-- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
-- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
-- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
 - [blackening of the bride](https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/)
-- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
+- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
+- [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
+- [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
+- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
 - [7 Wedding Dress Alternatives ...](https://wedding.allwomenstalk.com/7-wedding-dress-alternatives/)
 - [7 Ways for the Single Girl to Survive a Wedding .....](https://lifestyle.allwomenstalk.com/ways-for-the-single-girl-to-survive-a-wedding/)
 

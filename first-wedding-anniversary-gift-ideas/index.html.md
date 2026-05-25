@@ -46,16 +46,16 @@ What are some of your first wedding anniversary gift ideas? Are you exchanging a
 
 ## Related Posts
 
-- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
-- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
-- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
-- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
-- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
 - [all white wedding ideas](https://wedding.allwomenstalk.com/wedding-themes-that-everyone-will-love/)
+- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
+- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
 - [wedding escort card ideas](https://wedding.allwomenstalk.com/unique-wedding-escort-card-ideas/)
+- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
+- [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
+- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
 - [best gift for friends wedding female](https://wedding.allwomenstalk.com/wedding-gifts-for-your-best-friends/)
 - [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
-- [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
+- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
 - [8 Interesting Bridal Shower Gifts for a Bride ...](https://wedding.allwomenstalk.com/8-interesting-bridal-shower-gifts-for-a-bride/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 

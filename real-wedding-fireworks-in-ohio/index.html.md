@@ -44,16 +44,16 @@ A big Congratulations to **Lindsey and David **and a very big Thank You to [Dami
 
 ## Related Posts
 
-- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
-- [pretty wedding cakes](https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/)
+- [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
 - [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
 - [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
-- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
+- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
+- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
 - [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
-- [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
-- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
+- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
+- [pretty wedding cakes](https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/)
 - [3 Amazing Offbeat Weddings ...](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 - [A Quirky and Romantic Engagement Shoot: TinyWater ...](https://wedding.allwomenstalk.com/a-quirky-and-romantic-engagement-shoot-tinywater-photography/)
 

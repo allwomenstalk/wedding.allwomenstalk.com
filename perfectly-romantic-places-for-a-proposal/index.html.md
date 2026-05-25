@@ -68,15 +68,15 @@ There’s nothing wrong with a proposal in your sitting room or over dessert at 
 
 ## Related Posts
 
-- [boyfriend said i love you](https://love.allwomenstalk.com/ways-guys-say-i-love-you-without-actually-saying-it/)
 - [cute date ideas for winter](https://love.allwomenstalk.com/romantic-date-ideas-for-winter-that-youll-both-love/)
 - [how to tell someone that they are amazing](https://lifestyle.allwomenstalk.com/effortless-ways-to-show-someone-you-appreciate-them/)
-- [stories of love](https://love.allwomenstalk.com/types-of-love-stories-wed-all-love-to-experience/)
+- [date ideas for fall](https://love.allwomenstalk.com/wonderful-fall-first-date-ideas-that-will-make-you-fall-in-love/)
+- [boyfriend said i love you](https://love.allwomenstalk.com/ways-guys-say-i-love-you-without-actually-saying-it/)
 - [i crave intimacy quotes](https://love.allwomenstalk.com/intimate-moments-we-all-crave-no-matter-who-we-are/)
 - [how many different kinds of love are there](https://love.allwomenstalk.com/distinct-types-of-love-that-we-should-all-get-to-experience/)
 - [signs hes madly in love with you](https://love.allwomenstalk.com/quite-surprising-ways-your-man-shows-his-love-for-you/)
-- [date ideas for fall](https://love.allwomenstalk.com/wonderful-fall-first-date-ideas-that-will-make-you-fall-in-love/)
 - [angels friends kiss](https://love.allwomenstalk.com/types-of-kisses-every-girl-dreams-of/)
+- [stories of love](https://love.allwomenstalk.com/types-of-love-stories-wed-all-love-to-experience/)
 - [romantic places to eat in edinburgh](https://travel.allwomenstalk.com/romantic-things-to-do-in-edinburgh-that-will-make-you-fall-in-love-all-over-again/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [10 Most Romantic Places for a Wedding Anniversary ...](https://allwomenstalk.com/10-most-romantic-places-for-a-wedding-anniversary/)

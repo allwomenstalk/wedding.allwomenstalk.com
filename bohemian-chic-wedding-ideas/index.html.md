@@ -80,16 +80,16 @@ As I mentioned before, lanterns are a big trend for **bohemian chic weddings**. 
 
 ## Related Posts
 
+- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
 - [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
+- [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
+- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
+- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
+- [engagement things to do](https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/)
 - [tangled wedding ideas](https://wedding.allwomenstalk.com/great-movie-inspired-wedding-themes/)
 - [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
-- [engagement things to do](https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/)
-- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
-- [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
-- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
 - [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
-- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 

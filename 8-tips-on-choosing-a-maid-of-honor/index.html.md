@@ -48,16 +48,16 @@ Top Photo Credit: [Catherine A](https://www.flickr.com/photos/7453191@N03/166017
 
 ## Related Posts
 
-- [sunflower weddings](https://wedding.allwomenstalk.com/decor-ideas-for-your-sunflower-wedding/)
-- [7 Reasons to Hire a Wedding Planner ...](https://wedding.allwomenstalk.com/7-reasons-to-hire-a-wedding-planner/)
-- [cameo wedding](https://wedding.allwomenstalk.com/4-etsy-wedding-accessories-for-your-cameo-theme/)
-- [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 - [unique place card ideas](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [loreal le shadow primped and](https://wedding.allwomenstalk.com/adorable-save-the-date-ideas/)
-- [5 Ways to Celebrate Your Wedding Anniversary ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-wedding-anniversary/)
+- [7 Reasons to Hire a Wedding Planner ...](https://wedding.allwomenstalk.com/7-reasons-to-hire-a-wedding-planner/)
+- [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
+- [sunflower weddings](https://wedding.allwomenstalk.com/decor-ideas-for-your-sunflower-wedding/)
 - [kate middleton myers briggs](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-the-royal-wedding/)
-- [4 Very Cool Wedding Reception Locations ...](https://wedding.allwomenstalk.com/4-very-cool-wedding-reception-locations/)
+- [5 Ways to Celebrate Your Wedding Anniversary ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-wedding-anniversary/)
 - [royal wedding bank holiday](https://wedding.allwomenstalk.com/7-pros-and-cons-of-the-royal-wedding/)
+- [4 Very Cool Wedding Reception Locations ...](https://wedding.allwomenstalk.com/4-very-cool-wedding-reception-locations/)
+- [cameo wedding](https://wedding.allwomenstalk.com/4-etsy-wedding-accessories-for-your-cameo-theme/)
 - [7 Tips for Choosing a Travel Buddy ...](https://travel.allwomenstalk.com/tips-for-choosing-a-travel-buddy/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 

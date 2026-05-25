@@ -40,16 +40,16 @@ Top Photo: [StyleMePretty](https://www.stylemepretty.com/)
 
 ## Related Posts
 
-- [7 Things to Think about when Choosing Your Wedding...](https://wedding.allwomenstalk.com/7-things-to-think-about-when-choosing-your-wedding-photographer/)
 - [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
-- [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
+- [For Japan with Love: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/for-japan-with-love-above-and-beyond-the-wedding-industry/)
+- [cinco de mayo wedding anniversary](https://wedding.allwomenstalk.com/reasons-to-celebrate-a-cinco-de-mayo-wedding/)
+- [valentines wedding theme](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-a-colorful-valentines-day/)
+- [7 Things to Think about when Choosing Your Wedding...](https://wedding.allwomenstalk.com/7-things-to-think-about-when-choosing-your-wedding-photographer/)
 - [Engaged with a Cause: above and beyond the Wedding...](https://wedding.allwomenstalk.com/engaged-with-a-cause-above-and-beyond-the-wedding-industry/)
+- [bridal shower ideas themes](https://wedding.allwomenstalk.com/theme-ideas-for-a-bridal-shower/)
 - [DIY Wedding Ideas on a Budget: Guest Blogger Poppi...](https://wedding.allwomenstalk.com/diy-wedding-ideas-on-a-budget-guest-blogger-poppies-sunshine/)
 - [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
-- [bridal shower ideas themes](https://wedding.allwomenstalk.com/theme-ideas-for-a-bridal-shower/)
-- [valentines wedding theme](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-a-colorful-valentines-day/)
-- [cinco de mayo wedding anniversary](https://wedding.allwomenstalk.com/reasons-to-celebrate-a-cinco-de-mayo-wedding/)
-- [For Japan with Love: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/for-japan-with-love-above-and-beyond-the-wedding-industry/)
+- [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 - [4 Inspiring Ways to Plan a Purple Wedding ...](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
 - [4 Ways to Shine with Wedding Chandeliers ...](https://wedding.allwomenstalk.com/4-ways-to-shine-with-wedding-chandeliers/)
 

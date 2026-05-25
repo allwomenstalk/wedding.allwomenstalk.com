@@ -42,16 +42,16 @@ What are your thoughts on this subject? Will you do your own wedding day makeup?
 
 ## Related Posts
 
-- [loreal la maximalist eyeshadow blinged and](https://makeup.allwomenstalk.com/tips-on-where-to-apply-concealer/)
-- [loreal color stylo eye shadow blue spark](https://makeup.allwomenstalk.com/ways-to-wear-glitter-eye-makeup/)
-- [what hides dark circles under eyes](https://makeup.allwomenstalk.com/ways-to-conceal-those-annoying-dark-circles/)
-- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
-- [make your eyes sparkle](https://makeup.allwomenstalk.com/best-glitter-eye-shadows-to-make-your-eyes-sparkle/)
-- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
 - [demi lovato eyebrows](https://beauty.allwomenstalk.com/celebs-that-prove-good-eyebrows-can-change-your-entire-face/)
+- [eyeshadow looks](https://makeup.allwomenstalk.com/ingenious-eye-shadow-looks-for-a-night-out/)
+- [bare faced celebrities](https://celebs.allwomenstalk.com/skip-the-makeup-go-bare-face-like-these-celebs/)
+- [bronzer tips](https://makeup.allwomenstalk.com/tips-for-applying-bronzer-in-the-fall/)
+- [loreal la maximalist eyeshadow blinged and](https://makeup.allwomenstalk.com/tips-on-where-to-apply-concealer/)
 - [le stylo eye shadow primped and previous](https://makeup.allwomenstalk.com/makeup-how-to-the-perfect-subtle-smokey-eye/)
 - [should an older woman wear mascara on bottom lashe...](https://makeup.allwomenstalk.com/mascara-101-four-helpful-tips-to-know/)
-- [bronzer tips](https://makeup.allwomenstalk.com/tips-for-applying-bronzer-in-the-fall/)
+- [what hides dark circles under eyes](https://makeup.allwomenstalk.com/ways-to-conceal-those-annoying-dark-circles/)
+- [loreal color stylo eye shadow blue spark](https://makeup.allwomenstalk.com/ways-to-wear-glitter-eye-makeup/)
+- [make your eyes sparkle](https://makeup.allwomenstalk.com/best-glitter-eye-shadows-to-make-your-eyes-sparkle/)
 - [7 Tips on Finding a Great Makeup Artist for Your W...](https://wedding.allwomenstalk.com/7-tips-on-finding-a-great-makeup-artist-for-your-wedding/)
 - [7 Ways to Perfect Your Makeup Skills ...](https://allwomenstalk.com/7-ways-to-perfect-your-makeup-skills/)
 

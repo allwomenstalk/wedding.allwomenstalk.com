@@ -62,16 +62,16 @@ These winter wedding color schemes are more than suitable for any winter wedding
 
 ## Related Posts
 
-- [garden wedding arches](https://wedding.allwomenstalk.com/wedding-arches-arbors-and-backdrops/)
-- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
 - [cringe proposal](https://funny.allwomenstalk.com/awful-marriage-proposals-that-will-make-you-cringe/)
 - [how to get in shape for a wedding](https://fitness.allwomenstalk.com/exercises-for-brides-to-be-to-whip-you-into-shape-for-wedding-day/)
-- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
-- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
-- [winter wedding quotes](https://wedding.allwomenstalk.com/advantages-of-a-winter-wedding/)
-- [flash mob wedding](https://wedding.allwomenstalk.com/this-bride-was-surprised-with-a-flash-mob-wedding-at-the-mall-watch-it-happen/)
-- [marriage in december](https://wedding.allwomenstalk.com/reasons-to-have-an-indian-wedding-in-december/)
 - [simple beach wedding ideas](https://wedding.allwomenstalk.com/a-fully-packed-ideas-book-for-a-beach-wedding/)
+- [marriage in december](https://wedding.allwomenstalk.com/reasons-to-have-an-indian-wedding-in-december/)
+- [outdoor church wedding](https://wedding.allwomenstalk.com/ideas-for-your-outdoor-wedding/)
+- [nature themed wedding cakes](https://wedding.allwomenstalk.com/say-yes-to-these-outdoor-themed-rustic-wedding-cakes/)
+- [bye bye to bachelor life quotes](https://funny.allwomenstalk.com/adorably-silly-quotes-about-being-a-bride/)
+- [flash mob wedding](https://wedding.allwomenstalk.com/this-bride-was-surprised-with-a-flash-mob-wedding-at-the-mall-watch-it-happen/)
+- [winter wedding quotes](https://wedding.allwomenstalk.com/advantages-of-a-winter-wedding/)
+- [garden wedding arches](https://wedding.allwomenstalk.com/wedding-arches-arbors-and-backdrops/)
 - [3 Wedding Inspiration Boards to Celebrate the Colo...](https://wedding.allwomenstalk.com/wedding-inspiration-boards-to-celebrate-the-color-of/)
 - [12 Amazingly Creative Wedding Photos ...](https://allwomenstalk.com/12-amazingly-creative-wedding-photos/)
 

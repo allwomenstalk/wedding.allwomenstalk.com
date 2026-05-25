@@ -98,16 +98,16 @@ Bride's Gown: [Maggie Sottero](https://www.maggiesottero.com/)/ Flowers: [Countr
 
 ## Related Posts
 
-- [wedding blog guest post](https://wedding.allwomenstalk.com/favourite-weddings-guest-blogger-diana-from-express-o/)
+- [diy wedding scrapbook ideas](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)
+- [wedding day banners](https://wedding.allwomenstalk.com/3-ways-to-bunt-or-banner-your-wedding-day/)
 - [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
-- [pittsburgh steelers cake](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 - [5 Peony Bouquets to Brighten up Your Wedding Day ....](https://wedding.allwomenstalk.com/peony-bouquets-to-brighten-up-your-wedding-day/)
+- [rain on wedding day quotes](https://wedding.allwomenstalk.com/wedding-superstitions-from-around-the-world/)
+- [pittsburgh steelers cake](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
+- [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
 - [unique centerpieces](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
-- [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
-- [wedding day banners](https://wedding.allwomenstalk.com/3-ways-to-bunt-or-banner-your-wedding-day/)
-- [rain on wedding day quotes](https://wedding.allwomenstalk.com/wedding-superstitions-from-around-the-world/)
-- [diy wedding scrapbook ideas](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)
+- [wedding blog guest post](https://wedding.allwomenstalk.com/favourite-weddings-guest-blogger-diana-from-express-o/)
 - [Real Wedding: Playful  Romantic in Sacramento ...](https://wedding.allwomenstalk.com/real-wedding-playful-romantic-in-sacramento/)
 - [Jars of Love: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
 

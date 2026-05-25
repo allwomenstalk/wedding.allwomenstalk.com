@@ -82,16 +82,16 @@ So there you have it ladies! A list of some of the most beautiful hotels in the 
 
 ## Related Posts
 
-- [happiest places on earth](https://travel.allwomenstalk.com/happiest-places-on-earth/)
-- [7 Places to Go on a Budget Vacation when Money is ...](https://travel.allwomenstalk.com/places-to-go-on-a-budget-vacation-when-money-is-tight/)
-- [7 Epic Ski Resorts to Visit before Winter is over ...](https://travel.allwomenstalk.com/epic-ski-resorts-to-visit-before-winter-is-over/)
+- [uncommon accommodations](https://travel.allwomenstalk.com/unique-accommodation-ideas-for-your-next-vacation/)
+- [trinidad attractions](https://travel.allwomenstalk.com/lesser-known-attractions-in-the-caribbean/)
 - [7 Travel Tours with a Twist ...](https://travel.allwomenstalk.com/travel-tours-with-a-twist/)
 - [7 Amazing Honeymoons We Totally Want to Go on ...](https://wedding.allwomenstalk.com/amazing-honeymoons-we-totally-want-to-go-on/)
 - [9 Top Adventure Travels for 2014 ...](https://travel.allwomenstalk.com/top-adventure-travels-for/)
-- [7 Reasons to Visit Mount Desert Island ...](https://travel.allwomenstalk.com/reasons-to-visit-mount-desert-island/)
-- [trinidad attractions](https://travel.allwomenstalk.com/lesser-known-attractions-in-the-caribbean/)
+- [happiest places on earth](https://travel.allwomenstalk.com/happiest-places-on-earth/)
+- [7 Places to Go on a Budget Vacation when Money is ...](https://travel.allwomenstalk.com/places-to-go-on-a-budget-vacation-when-money-is-tight/)
+- [7 Epic Ski Resorts to Visit before Winter is over ...](https://travel.allwomenstalk.com/epic-ski-resorts-to-visit-before-winter-is-over/)
 - [7 National Forests to Lose Yourself in ...](https://travel.allwomenstalk.com/national-forests-to-lose-yourself-in/)
-- [uncommon accommodations](https://travel.allwomenstalk.com/unique-accommodation-ideas-for-your-next-vacation/)
+- [7 Reasons to Visit Mount Desert Island ...](https://travel.allwomenstalk.com/reasons-to-visit-mount-desert-island/)
 - [7 Best Budget Honeymoon Destinations ...](https://travel.allwomenstalk.com/best-budget-honeymoon-destinations/)
 - [7 Beautiful Destinations for Your Australian Honey...](https://wedding.allwomenstalk.com/7-beautiful-destinations-for-your-australian-honeymoon/)
 

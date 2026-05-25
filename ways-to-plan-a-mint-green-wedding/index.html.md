@@ -76,16 +76,16 @@ Don't be afraid of soft colors like mint green, your wedding details will still 
 
 ## Related Posts
 
-- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
+- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
 - [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
 - [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
-- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
 - [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
+- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
 - [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
 - [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
-- [riche le stylo smoky shadow blue spark](https://wedding.allwomenstalk.com/fun-chalkboard-wedding-ideas/)
+- [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
 - [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
 - [4 Inspiring Ways to Plan a Purple Wedding ...](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
 - [4 Ways to Mix up the Colors for Your Wedding ...](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)
 

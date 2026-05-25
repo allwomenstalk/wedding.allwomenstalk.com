@@ -54,16 +54,16 @@ I love for fun, funky and unique items to be included in wedding preparation and
 
 ## Related Posts
 
-- [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
-- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
-- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
-- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
-- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
-- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
 - [deco table gatsby](https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/)
+- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
+- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
+- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
 - [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
+- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
 - [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
 - [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
+- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [5 Creative Ways to save the Date ...](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 

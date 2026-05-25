@@ -44,16 +44,16 @@ Top Photo Credit: [sleepyjeanie](https://www.flickr.com/photos/sleepyjeanie/5342
 
 ## Related Posts
 
-- [rustic diy wedding centerpieces](https://wedding.allwomenstalk.com/5-rustic-wedding-centerpiece-ideas/)
-- [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
-- [wedding toast tips](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
-- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
 - [crazy venue](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)
+- [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
 - [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
 - [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
-- [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)
 - [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
+- [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)
 - [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
+- [wedding toast tips](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
+- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
+- [rustic diy wedding centerpieces](https://wedding.allwomenstalk.com/5-rustic-wedding-centerpiece-ideas/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [7 Beautiful Fall Wedding Flower Ideas ...](https://wedding.allwomenstalk.com/beautiful-fall-wedding-flower-ideas/)
 

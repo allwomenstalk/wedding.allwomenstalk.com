@@ -86,16 +86,16 @@ Don’t rush into getting married just because you think you should or because y
 
 ## Related Posts
 
-- [wedding proposal gone wrong](https://wedding.allwomenstalk.com/reasons-public-proposals-are-a-bad-idea/)
-- [never hold a grudge](https://inspiration.allwomenstalk.com/reasons-you-should-never-hold-a-grudge/)
-- [why looks shouldnt matter in a relationship](https://love.allwomenstalk.com/why-sexual-history-shouldnt-matter-in-a-new-relationship/)
-- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
-- [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
-- [you cant say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
 - [leggings thigh gap](https://fitness.allwomenstalk.com/why-you-shouldnt-worry-about-not-having-a-thigh-gap/)
-- [reasons not to adopt](https://parenting.allwomenstalk.com/wrong-reasons-to-consider-adopting-a-child/)
+- [why looks shouldnt matter in a relationship](https://love.allwomenstalk.com/why-sexual-history-shouldnt-matter-in-a-new-relationship/)
 - [warning signs of a mamas boy](https://love.allwomenstalk.com/reasons-never-to-date-a-mommas-boy/)
+- [never hold a grudge](https://inspiration.allwomenstalk.com/reasons-you-should-never-hold-a-grudge/)
+- [how to ask a guy why he stopped texting](https://love.allwomenstalk.com/top-reasons-why-he-stopped-texting-you/)
 - [what is a passenger princess](https://parenting.allwomenstalk.com/reasons-why-princess-syndrome-is-unhealthy/)
+- [you cant say](https://inspiration.allwomenstalk.com/why-you-shouldnt-say-cant/)
+- [reasons not to adopt](https://parenting.allwomenstalk.com/wrong-reasons-to-consider-adopting-a-child/)
+- [why a girl should not make the first move](https://love.allwomenstalk.com/reasons-women-shouldnt-be-afraid-to-make-the-first-move/)
+- [wedding proposal gone wrong](https://wedding.allwomenstalk.com/reasons-public-proposals-are-a-bad-idea/)
 - [8 Reasons Why Youre Still Single ...](https://allwomenstalk.com/8-reasons-why-youre-possibly-still-single/)
 - [7 Reasons You Should Not Rush into a Relationship ...](https://allwomenstalk.com/7-reasons-you-should-not-rush-into-a-relationship/)
 

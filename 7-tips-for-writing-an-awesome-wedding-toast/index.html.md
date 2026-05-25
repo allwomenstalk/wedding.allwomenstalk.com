@@ -50,16 +50,16 @@ Top image source: [lusterstudios.com](https://web.archive.org/web/http://www.lus
 
 ## Related Posts
 
+- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
+- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
+- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 - [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
 - [wedding runway](https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/)
-- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
-- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 - [5 Wedding Planning Tips No One Ever Tells the Brid...](https://wedding.allwomenstalk.com/wedding-planning-tips-no-one-ever-tells-the-bride/)
-- [crazy venue](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)
 - [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
-- [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 - [football wedding](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
-- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
+- [offbeat weddings](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
+- [crazy venue](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
 - [8 Tips on Having the Perfect Wedding ...](https://wedding.allwomenstalk.com/8-tips-on-having-the-perfect-wedding/)
 

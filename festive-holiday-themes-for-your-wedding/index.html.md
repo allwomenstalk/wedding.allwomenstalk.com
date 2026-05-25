@@ -64,16 +64,16 @@ Theses are only just a handful of **holiday themes for your wedding**, there are
 
 ## Related Posts
 
-- [vineyard themed wedding](https://wedding.allwomenstalk.com/wine-themed-wedding-ideas/)
-- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
-- [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
-- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
 - [how to add personal touches to your wedding](https://wedding.allwomenstalk.com/ways-to-add-personal-touches-to-your-wedding/)
 - [emerald green theme wedding](https://wedding.allwomenstalk.com/ideas-for-an-emerald-themed-wedding/)
-- [gamer couple wedding cake topper](https://wedding.allwomenstalk.com/quirky-wedding-cake-toppers/)
-- [pinterest wedding dresses for bridesmaids](https://wedding.allwomenstalk.com/tips-on-how-to-use-pinterest-for-wedding-planning/)
+- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
+- [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
 - [what to wear to a bridal fitting](https://wedding.allwomenstalk.com/tips-on-what-to-bring-to-your-wedding-dress-fitting/)
+- [pinterest wedding dresses for bridesmaids](https://wedding.allwomenstalk.com/tips-on-how-to-use-pinterest-for-wedding-planning/)
+- [vineyard themed wedding](https://wedding.allwomenstalk.com/wine-themed-wedding-ideas/)
+- [gamer couple wedding cake topper](https://wedding.allwomenstalk.com/quirky-wedding-cake-toppers/)
 - [renew of vows](https://wedding.allwomenstalk.com/fun-ideas-for-renewing-your-vows/)
+- [mojito wedding signature drink](https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 - [8 Exotic Wedding Themes Your Guests Will Love ...](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
 
