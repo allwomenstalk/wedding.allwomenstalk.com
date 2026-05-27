@@ -3,7 +3,7 @@ title: "5 Celebrity Weddings of Spring 2011 ..."
 description: "A Country Celebration....; Aqua & Yellow...; Sister, Sister...; Kings of Leon...; Third Times the Charm...; More ..."
 url: "https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/"
 category: "wedding"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 5 Celebrity Weddings of Spring 2011 ...
@@ -57,15 +57,15 @@ Top Photo: [People](https://people.com/)
 ## Related Posts
 
 - [paris riche le stylo eye paradise enchanted](https://twilight.allwomenstalk.com/if-i-could-pick-the-cast-for-the-twilight-movie-this-is-who-i-would-pick/)
-- [shaya charvet football](https://parenting.allwomenstalk.com/things-celebrity-parents-tweet-about/)
-- [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
-- [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
-- [celebrity marriage proposals](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
-- [5 Things to Remember when You See Robert in Hollyw...](https://twilight.allwomenstalk.com/5-things-to-remember-when-you-see-robert-in-hollywood/)
-- [tony romo](https://wedding.allwomenstalk.com/5-celebrity-couples-who-recently-said-yes/)
 - [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
-- [hottest heroes](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
+- [5 Things to Remember when You See Robert in Hollyw...](https://twilight.allwomenstalk.com/5-things-to-remember-when-you-see-robert-in-hollywood/)
+- [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
+- [tony romo](https://wedding.allwomenstalk.com/5-celebrity-couples-who-recently-said-yes/)
+- [celebrity marriage proposals](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
+- [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
+- [shaya charvet football](https://parenting.allwomenstalk.com/things-celebrity-parents-tweet-about/)
+- [hottest heroes](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
 - [3 Wedding Inspiration Boards to Celebrate the Colo...](https://wedding.allwomenstalk.com/wedding-inspiration-boards-to-celebrate-the-color-of/)
 - [5 Real Brides That Will Catch Your Eye ...](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 

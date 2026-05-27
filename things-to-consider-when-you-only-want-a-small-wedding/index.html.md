@@ -3,7 +3,7 @@ title: "7 Things to Consider when You Only Want a Small Wedding ..."
 description: "Be Selective with Your Guest List; Ignore Pressure from Family Members; Consider a Separate Guest List for Your Reception; Choose Your Venue Carefully; Make It Special; More ..."
 url: "https://wedding.allwomenstalk.com/things-to-consider-when-you-only-want-a-small-wedding/"
 category: "wedding"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Things to Consider when You Only Want a Small Wedding ...
@@ -42,16 +42,16 @@ If you’re getting married soon, then all the best of luck and hopefully you’
 
 ## Related Posts
 
-- [how to pose in wedding photos](https://wedding.allwomenstalk.com/touching-poses-for-mother-daughter-wedding-photos/)
 - [mountain casual attire](https://wedding.allwomenstalk.com/common-reasons-for-unhappy-wedding-guests/)
-- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
-- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
-- [creative social media creative engagement announce...](https://wedding.allwomenstalk.com/unique-ways-to-announce-your-engagement/)
 - [unique elopement ideas](https://wedding.allwomenstalk.com/unusual-places-to-elope-when-you-cant-stand-planning-a-wedding/)
+- [wedding reception music](https://wedding.allwomenstalk.com/tips-for-putting-together-your-wedding-reception-playlist/)
+- [how to pose in wedding photos](https://wedding.allwomenstalk.com/touching-poses-for-mother-daughter-wedding-photos/)
+- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
+- [wedding ben rector](https://music.allwomenstalk.com/unique-songs-to-play-on-your-wedding-day/)
+- [creative social media creative engagement announce...](https://wedding.allwomenstalk.com/unique-ways-to-announce-your-engagement/)
 - [engagement ring photoshoot ideas](https://wedding.allwomenstalk.com/unique-engagement-photo-shoot-ideas/)
 - [what is 40 year anniversary](https://wedding.allwomenstalk.com/special-wedding-anniversaries-and-what-to-buy/)
-- [wedding reception music](https://wedding.allwomenstalk.com/tips-for-putting-together-your-wedding-reception-playlist/)
-- [wedding ben rector](https://music.allwomenstalk.com/unique-songs-to-play-on-your-wedding-day/)
+- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
 - [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 

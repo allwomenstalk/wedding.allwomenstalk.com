@@ -3,7 +3,7 @@ title: "8 Fun Ideas for a Great Gatsby Themed Wedding ..."
 description: "Great Gatsby save the Date...; Great Gatsby Decor...; Great Gatsby Bridal Style...; Great Gatsby Bridesmaids...; Great Gatsby Wedding Cake...; More ..."
 url: "https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/"
 category: "wedding"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 8 Fun Ideas for a Great Gatsby Themed Wedding ...
@@ -58,14 +58,14 @@ Are you planning a Great Gatsby wedding or do you know someone who is? What do y
 
 ## Related Posts
 
-- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
-- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
-- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
-- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
 - [rustic wedding ideas bridesmaids](https://wedding.allwomenstalk.com/unique-ways-to-rock-the-rustic-wedding-theme/)
-- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
-- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
 - [literary themed wedding](https://wedding.allwomenstalk.com/absolutely-splendid-ideas-for-a-literary-themed-wedding/)
+- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
+- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
+- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
+- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
+- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
 - [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
 - [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)

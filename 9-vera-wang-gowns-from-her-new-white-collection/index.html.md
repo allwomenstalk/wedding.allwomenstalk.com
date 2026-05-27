@@ -3,7 +3,7 @@ title: "9 Vera Wang Gowns from Her New White Collection ..."
 description: "Layers of Fabric...; Romantic & Delicate...; She Has Accessories Too!; Simple & Classy...; Very Vera...; More ..."
 url: "https://wedding.allwomenstalk.com/9-vera-wang-gowns-from-her-new-white-collection/"
 category: "wedding"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 9 Vera Wang Gowns from Her New White Collection ...
@@ -64,15 +64,15 @@ All Photos: [DavidsBridal](http://www.davidsbridal.com?ref=allwomenstalk.com) vi
 ## Related Posts
 
 - [8 Fabulous Classic Looks Kate Middleton Would Wear...](https://celebs.allwomenstalk.com/fabulous-classic-looks-kate-middleton-would-wear-to-a-holiday-party/)
-- [modcloth i love your dress](https://fashion.allwomenstalk.com/new-maxi-dresses-i-love/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/jersey-dresses/)
 - [womens tank maxi dresses](https://fashion.allwomenstalk.com/maxi-tank-dresses/)
-- [8 Beautiful Bustier Dresses ...](https://fashion.allwomenstalk.com/beautiful-bustier-dresses/)
-- [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)
-- [7 Sweet Tiered Dresses ...](https://fashion.allwomenstalk.com/sweet-tiered-dresses/)
-- [wedding matron dresses](https://allwomenstalk.com/matron-of-honor-role-and-dress/)
+- [modcloth i love your dress](https://fashion.allwomenstalk.com/new-maxi-dresses-i-love/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/slip-dresses/)
 - [wedding dresses burnley](https://wedding.allwomenstalk.com/5-stunning-handmade-gowns-from-amy-jo-bridal/)
+- [7 Sweet Tiered Dresses ...](https://fashion.allwomenstalk.com/sweet-tiered-dresses/)
+- [9 Amazing Celebrity Wedding Dresses ...](https://celebs.allwomenstalk.com/amazing-celebrity-wedding-dresses/)
+- [wedding matron dresses](https://allwomenstalk.com/matron-of-honor-role-and-dress/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/jersey-dresses/)
+- [8 Beautiful Bustier Dresses ...](https://fashion.allwomenstalk.com/beautiful-bustier-dresses/)
 - [5 Lovely Bridal Gowns from BHLDN ...](https://wedding.allwomenstalk.com/5-lovely-bridal-gowns-from-bhldn/)
 - [4 New Bridal Gowns from BHLDN ...](https://wedding.allwomenstalk.com/new-bridal-gowns-from-bhldn/)
 

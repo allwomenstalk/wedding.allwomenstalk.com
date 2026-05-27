@@ -3,7 +3,7 @@ title: "7 Funny Proposals-Went-Wrong Videos ..."
 description: "Christmas Marriage Proposal Denied; Musical Proposal Denied; Balloon Proposal Goes Terribly Wrong; On-Stage Proposal Denied; Empire State Building Proposal Denied; More ..."
 url: "https://wedding.allwomenstalk.com/funny-proposals-went-wrong-videos/"
 category: "wedding"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 7 Funny Proposals\-Went\-Wrong Videos ...
@@ -44,16 +44,16 @@ Top Photo Credit: [Potterazzi](https://www.flickr.com/photos/lisa-marieuk2az/575
 
 ## Related Posts
 
-- [5 Scary Video Games ...](https://twilight.allwomenstalk.com/5-scary-video-games/)
 - [seth clearwater age](https://twilight.allwomenstalk.com/top-5-werewolves-in-twilight/)
 - [strange confessions](https://twilight.allwomenstalk.com/5-funny-confessions-of-a-werewolf/)
-- [5 Signs We Are Living in a Twilight World ...](https://twilight.allwomenstalk.com/5-signs-we-are-living-in-a-twilight-world/)
-- [celebrity vampires](https://twilight.allwomenstalk.com/5-popular-vampires-from-the-real-world/)
-- [scenes from twilight](https://twilight.allwomenstalk.com/5-mind-grabbing-scenes-from-the-twilight-series/)
-- [5 Moves to Make when Being Attacked by a Vampire ....](https://twilight.allwomenstalk.com/5-moves-to-make-when-being-attacked-by-a-vampire/)
-- [cool mythical creatures](https://twilight.allwomenstalk.com/5-cool-mythical-creatures/)
 - [5 Things Twilight Ruined ...](https://twilight.allwomenstalk.com/5-things-twilight-ruined/)
+- [5 Signs We Are Living in a Twilight World ...](https://twilight.allwomenstalk.com/5-signs-we-are-living-in-a-twilight-world/)
+- [5 Scary Video Games ...](https://twilight.allwomenstalk.com/5-scary-video-games/)
+- [5 Moves to Make when Being Attacked by a Vampire ....](https://twilight.allwomenstalk.com/5-moves-to-make-when-being-attacked-by-a-vampire/)
+- [scenes from twilight](https://twilight.allwomenstalk.com/5-mind-grabbing-scenes-from-the-twilight-series/)
+- [celebrity vampires](https://twilight.allwomenstalk.com/5-popular-vampires-from-the-real-world/)
 - [vampires sexy](https://twilight.allwomenstalk.com/5-sexy-vampires/)
+- [cool mythical creatures](https://twilight.allwomenstalk.com/5-cool-mythical-creatures/)
 - [7 Funny Jokes ...](https://allwomenstalk.com/7-funny-jokes/)
 - [7 Seriously Funny Bloopers ...](https://7fun.net/7-seriously-funny-bloopers/)
 

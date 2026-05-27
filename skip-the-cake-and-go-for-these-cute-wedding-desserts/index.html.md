@@ -3,7 +3,7 @@ title: "Skip the Cake and Go for These Cute Wedding Desserts ..."
 description: "Fruit Salad; Tux Oreos; Cake Pops; Oreo Cake; Personal Strawberry Shortcake; More ..."
 url: "https://wedding.allwomenstalk.com/skip-the-cake-and-go-for-these-cute-wedding-desserts/"
 category: "wedding"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # Skip the Cake and Go for These Cute Wedding Desserts ...
@@ -184,16 +184,16 @@ What's your favorite wedding cake alternative? Let me know in the comments!
 
 ## Related Posts
 
+- [what to make with jello](https://food.allwomenstalk.com/jello-recipes-to-serve-at-your-new-years-party/)
+- [christmas party appetizers](https://food.allwomenstalk.com/tiny-toothpick-appetizers-thatll-fit-any-occasion/)
 - [chocolate recipes christmas](https://food.allwomenstalk.com/festive-desserts-for-chocoholics/)
+- [rainbow bagels brooklyn](https://food.allwomenstalk.com/how-to-make-the-rainbow-bagels-youve-seen-on-instagram/)
+- [easy dessert recipes from around the world](https://food.allwomenstalk.com/you-need-to-try-these-delicious-desserts-from-around-the-world/)
+- [box jellyfish facts](https://food.allwomenstalk.com/chocoholics-will-devour-these-interesting-infographics/)
+- [easy valentines dessert](https://food.allwomenstalk.com/delicious-valentines-day-desserts-to-share-with-your-man/)
+- [does milk affect your voice](https://food.allwomenstalk.com/the-secret-to-making-the-perfect-chocolate-and-peanut-butter-no-bake-cookies/)
 - [treat yourself ice cream](https://food.allwomenstalk.com/ridiculously-indulgent-desserts-to-treat-yourself-with/)
 - [nutella slices](https://food.allwomenstalk.com/move-over-nutella-chocolate-slices-are-now-a-thing/)
-- [christmas party appetizers](https://food.allwomenstalk.com/tiny-toothpick-appetizers-thatll-fit-any-occasion/)
-- [box jellyfish facts](https://food.allwomenstalk.com/chocoholics-will-devour-these-interesting-infographics/)
-- [does milk affect your voice](https://food.allwomenstalk.com/the-secret-to-making-the-perfect-chocolate-and-peanut-butter-no-bake-cookies/)
-- [rainbow bagels brooklyn](https://food.allwomenstalk.com/how-to-make-the-rainbow-bagels-youve-seen-on-instagram/)
-- [easy valentines dessert](https://food.allwomenstalk.com/delicious-valentines-day-desserts-to-share-with-your-man/)
-- [what to make with jello](https://food.allwomenstalk.com/jello-recipes-to-serve-at-your-new-years-party/)
-- [easy dessert recipes from around the world](https://food.allwomenstalk.com/you-need-to-try-these-delicious-desserts-from-around-the-world/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [7 Amazing Birthday Cakes Youll Want to Try ...](https://food.allwomenstalk.com/amazing-birthday-cakes-youll-want-to-try/)
 
