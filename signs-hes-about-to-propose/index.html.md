@@ -3,7 +3,7 @@ title: "7 Signs Hes about to Propose ..."
 description: "Have Most of His Bros Settled down?; Does He Often Absentmindedly Talk about Future Plans?; He Actually Seems Interested in Other Weddings; He Wants to Get a Pet Together; He Talks about Rings; More ..."
 url: "https://wedding.allwomenstalk.com/signs-hes-about-to-propose/"
 category: "wedding"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Signs Hes about to Propose ...
@@ -48,16 +48,16 @@ Whether you pick up on the signs or not, getting engaged is an event you'll neve
 
 ## Related Posts
 
-- [youll never be good enough for the wrong person](https://love.allwomenstalk.com/obvious-signs-you-are-dating-the-wrong-person/)
 - [passive-aggressive behavior examples](https://love.allwomenstalk.com/signs-your-partner-is-passive-aggressive/)
-- [when its time to let go of a relationship](https://love.allwomenstalk.com/signs-its-time-to-let-go-of-a-relationship-2/)
-- [do guys like love notes](https://love.allwomenstalk.com/sure-signs-hes-a-keeper/)
-- [they miss each other](https://love.allwomenstalk.com/signs-youre-starting-to-fall-for-each-other/)
-- [why isnt my relationship working](https://love.allwomenstalk.com/signs-a-relationship-isnt-going-to-work-out/)
-- [how can you tell when a man is lying](https://love.allwomenstalk.com/signs-your-man-is-telling-lies/)
 - [is he right for me](https://love.allwomenstalk.com/sure-signs-he-isnt-right-for-you/)
+- [youll never be good enough for the wrong person](https://love.allwomenstalk.com/obvious-signs-you-are-dating-the-wrong-person/)
+- [do guys like love notes](https://love.allwomenstalk.com/sure-signs-hes-a-keeper/)
 - [its not a date](https://love.allwomenstalk.com/sure-signs-that-its-not-a-date/)
+- [they miss each other](https://love.allwomenstalk.com/signs-youre-starting-to-fall-for-each-other/)
 - [favourite person meaning in telugu](https://love.allwomenstalk.com/signs-he-could-go-from-your-friend-to-boyfriend/)
+- [how can you tell when a man is lying](https://love.allwomenstalk.com/signs-your-man-is-telling-lies/)
+- [when its time to let go of a relationship](https://love.allwomenstalk.com/signs-its-time-to-let-go-of-a-relationship-2/)
+- [why isnt my relationship working](https://love.allwomenstalk.com/signs-a-relationship-isnt-going-to-work-out/)
 - [7 Signs Its Time to Move in Together ...](https://lifestyle.allwomenstalk.com/signs-its-time-to-move-in-together/)
 - [7 Signs Hes Ready to Move in ...](https://love.allwomenstalk.com/signs-hes-ready-to-move-in/)
 

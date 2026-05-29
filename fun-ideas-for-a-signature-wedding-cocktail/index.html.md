@@ -3,7 +3,7 @@ title: "8 Fun Ideas for a Signature Wedding Cocktail ..."
 description: "Spicy Tequila Sunrise; Something Blue Cocktail; Apple Cider Sangria; Berry Bellini Float; Blueberry Lavender Mojito; More ..."
 url: "https://wedding.allwomenstalk.com/fun-ideas-for-a-signature-wedding-cocktail/"
 category: "wedding"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 8 Fun Ideas for a Signature Wedding Cocktail ...
@@ -62,16 +62,16 @@ You don't have to feature a signature wedding cocktail during your big day to ma
 
 ## Related Posts
 
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
-- [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
+- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
+- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
+- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
 - [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
 - [beach theme wedding invitations](https://wedding.allwomenstalk.com/lovely-lesbian-wedding-invitations/)
-- [bridal bouquet alternatives](https://wedding.allwomenstalk.com/alternatives-to-a-floral-wedding-bouquet/)
 - [2013 wedding trends](https://wedding.allwomenstalk.com/wedding-themes-for/)
-- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
-- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
 - [where to buy wedding decorations](https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/)
-- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
+- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
+- [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 - [8 Crazy Ideas for a Wedding Venue ...](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)
 

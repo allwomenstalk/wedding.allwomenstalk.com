@@ -3,7 +3,7 @@ title: "7 Zany Wedding Traditions from All around the World ..."
 description: "Apple Shooting and Sieve Throwing; “Blackening the Bride” and Feet Washing; Log Sawing; Polterband; Steal the Shoe; More ..."
 url: "https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/"
 category: "wedding"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 7 Zany Wedding Traditions from All around the World ...
@@ -42,16 +42,16 @@ Pretty whacked, huh? I certainly won’t be including any one of these wedding t
 
 ## Related Posts
 
-- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
-- [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
-- [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
-- [type of wedding themes](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
-- [5 Tips on Technology and Wedding Planning ...](https://wedding.allwomenstalk.com/tips-on-technology-and-wedding-planning/)
-- [romantic ideas for women](https://wedding.allwomenstalk.com/5-romantic-ideas-for-a-valentines-day-wedding/)
-- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
-- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
-- [Engagement Shoot: Forever Friends ...](https://wedding.allwomenstalk.com/engagement-shoot-forever-friends/)
 - [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
+- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
+- [5 Tips on Technology and Wedding Planning ...](https://wedding.allwomenstalk.com/tips-on-technology-and-wedding-planning/)
+- [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
+- [romantic ideas for women](https://wedding.allwomenstalk.com/5-romantic-ideas-for-a-valentines-day-wedding/)
+- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
+- [type of wedding themes](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
+- [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
+- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
+- [Engagement Shoot: Forever Friends ...](https://wedding.allwomenstalk.com/engagement-shoot-forever-friends/)
 - [7 Weird Wedding Laws](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
 - [7 Wackiest Proposals Ever ...](https://wedding.allwomenstalk.com/7-wackiest-proposals-ever/)
 

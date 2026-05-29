@@ -3,7 +3,7 @@ title: "6 Sweet Ideas for a Candy Themed Bridal Shower ..."
 description: "Candy Ring Pop...; Candy Guestbook...; Bride & Shower Host...; Candy Bar Invitation...; Bubble Gum Cocktail...; More ..."
 url: "https://wedding.allwomenstalk.com/sweet-ideas-for-a-candy-themed-bridal-shower/"
 category: "wedding"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # 6 Sweet Ideas for a Candy Themed Bridal Shower ...
@@ -52,16 +52,16 @@ Photos: [MarthaStewartWeddings](https://www.marthastewart.com/7952336/dylan-laur
 
 ## Related Posts
 
+- [wedding catastrophe](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
+- [elizabeth taylor on marriage](https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/)
+- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
+- [colonial baptist church wintersville ohio](https://wedding.allwomenstalk.com/real-wedding-military-love-in-pittsburgh/)
+- [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
+- [october wedding flowers](https://wedding.allwomenstalk.com/beautiful-fall-wedding-flower-ideas/)
+- [etiquette wedding](https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/)
 - [4 Amazing Wedding Shots You Need to See](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
 - [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
 - [winter wedding invitations cheap](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
-- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
-- [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
-- [elizabeth taylor on marriage](https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/)
-- [colonial baptist church wintersville ohio](https://wedding.allwomenstalk.com/real-wedding-military-love-in-pittsburgh/)
-- [etiquette wedding](https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/)
-- [wedding catastrophe](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
-- [october wedding flowers](https://wedding.allwomenstalk.com/beautiful-fall-wedding-flower-ideas/)
 - [8 Interesting Bridal Shower Gifts for a Bride ...](https://wedding.allwomenstalk.com/8-interesting-bridal-shower-gifts-for-a-bride/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 
