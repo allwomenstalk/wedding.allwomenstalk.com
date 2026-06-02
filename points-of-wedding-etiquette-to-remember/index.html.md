@@ -3,7 +3,7 @@ title: "7 Points of Wedding Etiquette to Remember ..."
 description: "Don't Just Eat, then Leave; Bring Some Sort of Gift; Do Not Overdress; Smile; Greet the Couple; More ..."
 url: "https://wedding.allwomenstalk.com/points-of-wedding-etiquette-to-remember/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Points of Wedding Etiquette to Remember ...
@@ -42,16 +42,16 @@ I'm sure I missed more points so feel free to share your own experiences and sug
 
 ## Related Posts
 
-- [bad weather wedding planning](https://wedding.allwomenstalk.com/ways-to-cope-with-rain-on-your-wedding-day-that-will-make-the-weather-no-issue/)
-- [7 Ways to Deal with All Your Friends Getting Marri...](https://love.allwomenstalk.com/ways-to-deal-with-all-your-friends-getting-married/)
-- [Best Wedding Gift: 7 Brothers Perform Epic Dance f...](https://wedding.allwomenstalk.com/best-wedding-gift-brothers-perform-epic-dance-for-their-sister/)
-- [The Day of Your Dreams with a Backyard Wedding ...](https://wedding.allwomenstalk.com/the-day-of-your-dreams-with-a-backyard-wedding/)
-- [7 Ways to Prepare for the Wedding Season ...](https://wedding.allwomenstalk.com/ways-to-prepare-for-the-wedding-season/)
-- [9 bridesmaids](https://wedding.allwomenstalk.com/planning-your-wedding-you-need-to-know-these-ways-to-make-your-bridesmaids-feel-special/)
-- [7 Critical Wedding Expenses You Cant Forget to Bud...](https://wedding.allwomenstalk.com/critical-wedding-expenses-you-cant-forget-to-budget-for/)
-- [7 Ways to Incorporate Flowers into Your Wedding .....](https://wedding.allwomenstalk.com/ways-to-incorporate-flowers-into-your-wedding/)
-- [7 Stunningly Sweet Wedding Trends for Spring ...](https://wedding.allwomenstalk.com/stunningly-sweet-wedding-trends-for-spring/)
 - [7 Wedding Expenses People Are Avoiding These Days ...](https://wedding.allwomenstalk.com/wedding-expenses-people-are-avoiding-these-days-and-you-should-too/)
+- [Best Wedding Gift: 7 Brothers Perform Epic Dance f...](https://wedding.allwomenstalk.com/best-wedding-gift-brothers-perform-epic-dance-for-their-sister/)
+- [7 Critical Wedding Expenses You Cant Forget to Bud...](https://wedding.allwomenstalk.com/critical-wedding-expenses-you-cant-forget-to-budget-for/)
+- [7 Ways to Prepare for the Wedding Season ...](https://wedding.allwomenstalk.com/ways-to-prepare-for-the-wedding-season/)
+- [The Day of Your Dreams with a Backyard Wedding ...](https://wedding.allwomenstalk.com/the-day-of-your-dreams-with-a-backyard-wedding/)
+- [7 Ways to Incorporate Flowers into Your Wedding .....](https://wedding.allwomenstalk.com/ways-to-incorporate-flowers-into-your-wedding/)
+- [bad weather wedding planning](https://wedding.allwomenstalk.com/ways-to-cope-with-rain-on-your-wedding-day-that-will-make-the-weather-no-issue/)
+- [7 Stunningly Sweet Wedding Trends for Spring ...](https://wedding.allwomenstalk.com/stunningly-sweet-wedding-trends-for-spring/)
+- [9 bridesmaids](https://wedding.allwomenstalk.com/planning-your-wedding-you-need-to-know-these-ways-to-make-your-bridesmaids-feel-special/)
+- [7 Ways to Deal with All Your Friends Getting Marri...](https://love.allwomenstalk.com/ways-to-deal-with-all-your-friends-getting-married/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 - [7 Wedding Planning Tips ...](https://love.allwomenstalk.com/wedding-planning-tips/)
 

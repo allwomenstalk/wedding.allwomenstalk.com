@@ -3,7 +3,7 @@ title: "7 Things to Consider when You Only Want a Small Wedding ..."
 description: "Be Selective with Your Guest List; Ignore Pressure from Family Members; Consider a Separate Guest List for Your Reception; Choose Your Venue Carefully; Make It Special; More ..."
 url: "https://wedding.allwomenstalk.com/things-to-consider-when-you-only-want-a-small-wedding/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Things to Consider when You Only Want a Small Wedding ...
@@ -43,14 +43,14 @@ If you’re getting married soon, then all the best of luck and hopefully you’
 ## Related Posts
 
 - [what is 40 year anniversary](https://wedding.allwomenstalk.com/special-wedding-anniversaries-and-what-to-buy/)
-- [creative social media creative engagement announce...](https://wedding.allwomenstalk.com/unique-ways-to-announce-your-engagement/)
-- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
-- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
 - [mountain casual attire](https://wedding.allwomenstalk.com/common-reasons-for-unhappy-wedding-guests/)
-- [unique elopement ideas](https://wedding.allwomenstalk.com/unusual-places-to-elope-when-you-cant-stand-planning-a-wedding/)
 - [engagement ring photoshoot ideas](https://wedding.allwomenstalk.com/unique-engagement-photo-shoot-ideas/)
 - [how to pose in wedding photos](https://wedding.allwomenstalk.com/touching-poses-for-mother-daughter-wedding-photos/)
 - [wedding ben rector](https://music.allwomenstalk.com/unique-songs-to-play-on-your-wedding-day/)
+- [unique elopement ideas](https://wedding.allwomenstalk.com/unusual-places-to-elope-when-you-cant-stand-planning-a-wedding/)
+- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
+- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
+- [creative social media creative engagement announce...](https://wedding.allwomenstalk.com/unique-ways-to-announce-your-engagement/)
 - [wedding reception music](https://wedding.allwomenstalk.com/tips-for-putting-together-your-wedding-reception-playlist/)
 - [8 Advice for Those Getting Married](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)

@@ -3,7 +3,7 @@ title: "8 Things to do after Youre Engaged ..."
 description: "Make the Big Announcement; Get a Manicure; Set a General Date; Perfect Your Engagement Story; Get Your Ring Insured; More ..."
 url: "https://wedding.allwomenstalk.com/things-to-do-after-youre-engaged/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Things to do after Youre Engaged ...
@@ -46,16 +46,16 @@ The key is to start planning a wedding as early as possible. It will definitely 
 
 ## Related Posts
 
+- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
+- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
 - [wedding favors travel theme](https://wedding.allwomenstalk.com/ways-to-plan-a-travel-themed-wedding/)
+- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
+- [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
 - [wedding dress theme ideas](https://wedding.allwomenstalk.com/chic-houndstooth-wedding-theme-ideas/)
 - [best movie weddings](https://movies.allwomenstalk.com/incredible-movie-weddings-to-watch/)
-- [themed weddings](https://wedding.allwomenstalk.com/tasty-ideas-for-a-foodie-themed-wedding/)
-- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
-- [southern wedding favors](https://wedding.allwomenstalk.com/creative-hometown-wedding-favor-ideas/)
-- [wedding songs 2014](https://wedding.allwomenstalk.com/of-the-most-annoying-wedding-songs-ever/)
 - [vegas wedding inspo](https://wedding.allwomenstalk.com/fun-ideas-for-a-sparkly-wedding-theme/)
-- [beach wedding guest book ideas](https://wedding.allwomenstalk.com/creative-wedding-guestbook-ideas/)
-- [themes for holidays](https://wedding.allwomenstalk.com/festive-holiday-themes-for-your-wedding/)
+- [things worth splurging on](https://wedding.allwomenstalk.com/wedding-items-worth-splurging-on/)
+- [wedding songs 2014](https://wedding.allwomenstalk.com/of-the-most-annoying-wedding-songs-ever/)
 - [10 Things Every Bridesmaid Should do ...](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
 - [7 Things to do at a Bachelorette Party ...](https://wedding.allwomenstalk.com/7-things-to-do-at-a-bachelorette-party/)
 

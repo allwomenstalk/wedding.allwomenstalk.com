@@ -3,7 +3,7 @@ title: "9 Creative Ways to Plan a French-themed Engagement Party ..."
 description: "An Ode to Love Locks; Au Cafe; Wine Country; Eiffel Tower Centerpieces; Les Macarons; More ..."
 url: "https://wedding.allwomenstalk.com/creative-ways-to-plan-a-french-themed-engagement-party/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 9 Creative Ways to Plan a French\-themed Engagement Party ...
@@ -50,16 +50,16 @@ Because of my French heritage, I find myself excited at the thought of these Fre
 
 ## Related Posts
 
-- [hawaii wedding favors](https://wedding.allwomenstalk.com/fun-hawaiian-wedding-ideas-for-tying-the-knot-in-paradise/)
-- [carnival wedding theme](https://wedding.allwomenstalk.com/awesome-carnival-wedding-ideas-for-the-best-day-ever/)
 - [fall wedding trends](https://wedding.allwomenstalk.com/cute-fall-wedding-trends-youll-totally-love/)
+- [hawaii wedding favors](https://wedding.allwomenstalk.com/fun-hawaiian-wedding-ideas-for-tying-the-knot-in-paradise/)
+- [his unforgettable fiancee](https://wedding.allwomenstalk.com/unforgettable-wedding-gifts-your-fiance-will-love/)
 - [intimate wedding benefits](https://wedding.allwomenstalk.com/great-reasons-to-plan-a-small-and-intimate-wedding/)
-- [vow writing tips](https://wedding.allwomenstalk.com/invaluable-wedding-vow-tips-that-will-help-you-write-your-own/)
 - [edgy updos](https://hair.allwomenstalk.com/wedding-updos-you-dont-want-to-miss/)
 - [unique centerpieces wedding](https://wedding.allwomenstalk.com/creative-and-unusual-wedding-centerpiece-ideas-to-try/)
-- [his unforgettable fiancee](https://wedding.allwomenstalk.com/unforgettable-wedding-gifts-your-fiance-will-love/)
 - [family fights quotes](https://wedding.allwomenstalk.com/ways-to-avoid-family-fights-at-your-wedding/)
 - [wedding registry essentials](https://wedding.allwomenstalk.com/classic-home-essentials-to-include-in-your-wedding-registry/)
+- [carnival wedding theme](https://wedding.allwomenstalk.com/awesome-carnival-wedding-ideas-for-the-best-day-ever/)
+- [vow writing tips](https://wedding.allwomenstalk.com/invaluable-wedding-vow-tips-that-will-help-you-write-your-own/)
 - [6 Ways to Plan a Fairytale Wedding ...](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
 - [7 Things to do with Your Fianc ...](https://allwomenstalk.com/7-things-to-do-with-your-fiance/)
 

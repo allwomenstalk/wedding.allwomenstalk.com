@@ -3,7 +3,7 @@ title: "7 Gorgeous Wedding Color Schemes for 2014 ..."
 description: "Mint and Pink; Navy Blue and Blush; Sage Green and Navy Blue; Aqua and Magenta; Ice Blue and Coral; More ..."
 url: "https://wedding.allwomenstalk.com/gorgeous-wedding-color-schemes-for/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Gorgeous Wedding Color Schemes for 2014 ...
@@ -56,16 +56,16 @@ Are you currently planning your wedding? Are you having trouble picking out your
 
 ## Related Posts
 
-- [briana evigan married](https://wedding.allwomenstalk.com/beautiful-wedding-videos-that-will-make-you-teary-eyed/)
-- [elegant blue cake](https://wedding.allwomenstalk.com/wedding-cakes-to-make-your-day-special/)
-- [alternative marriage arrangements](https://love.allwomenstalk.com/alternatives-to-traditional-marriage-many-women-are-embracing/)
-- [wedding touch](https://wedding.allwomenstalk.com/ways-to-add-a-meaningful-touch-to-your-wedding/)
-- [how much did kim kardashians wedding cost](https://celebs.allwomenstalk.com/ridiculous-things-about-kim-kardashians-wedding/)
-- [outdoor wedding flower decorations](https://wedding.allwomenstalk.com/stunning-wedding-flower-arrangements-to-inspire-you/)
-- [creative bridal shower ideas](https://wedding.allwomenstalk.com/non-traditional-bridal-shower-ideas/)
-- [harry potter wedding centerpieces](https://wedding.allwomenstalk.com/magical-ways-to-have-a-harry-potter-wedding/)
-- [i have cold feet about getting married](https://wedding.allwomenstalk.com/things-to-do-if-you-get-cold-feet-before-your-wedding/)
 - [lisa robertson marriage](https://wedding.allwomenstalk.com/ways-to-handle-pressure-to-get-married/)
+- [how much did kim kardashians wedding cost](https://celebs.allwomenstalk.com/ridiculous-things-about-kim-kardashians-wedding/)
+- [wedding touch](https://wedding.allwomenstalk.com/ways-to-add-a-meaningful-touch-to-your-wedding/)
+- [i have cold feet about getting married](https://wedding.allwomenstalk.com/things-to-do-if-you-get-cold-feet-before-your-wedding/)
+- [alternative marriage arrangements](https://love.allwomenstalk.com/alternatives-to-traditional-marriage-many-women-are-embracing/)
+- [briana evigan married](https://wedding.allwomenstalk.com/beautiful-wedding-videos-that-will-make-you-teary-eyed/)
+- [creative bridal shower ideas](https://wedding.allwomenstalk.com/non-traditional-bridal-shower-ideas/)
+- [elegant blue cake](https://wedding.allwomenstalk.com/wedding-cakes-to-make-your-day-special/)
+- [outdoor wedding flower decorations](https://wedding.allwomenstalk.com/stunning-wedding-flower-arrangements-to-inspire-you/)
+- [harry potter wedding centerpieces](https://wedding.allwomenstalk.com/magical-ways-to-have-a-harry-potter-wedding/)
 - [3 Wedding Inspiration Boards to Celebrate the Colo...](https://wedding.allwomenstalk.com/wedding-inspiration-boards-to-celebrate-the-color-of/)
 - [4 Ways to Mix up the Colors for Your Wedding ...](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)
 

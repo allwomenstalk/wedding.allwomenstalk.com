@@ -3,7 +3,7 @@ title: "8 Fun Ways to Display Photos at Your Wedding ..."
 description: "Edible Photo Cake; Engagement Portrait Canvas or Photo Print; Centerpiece Photos; Creative Slideshow; Memory Table; More ..."
 url: "https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Fun Ways to Display Photos at Your Wedding ...
@@ -62,16 +62,16 @@ Are there any other great ways to display photos at your wedding that you’re e
 
 ## Related Posts
 
-- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
-- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
 - [deco table gatsby](https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/)
-- [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
-- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
-- [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
 - [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
+- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
 - [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
 - [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
+- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
 - [unique save the date ideas](https://wedding.allwomenstalk.com/creative-save-the-date-ideas/)
+- [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
+- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 

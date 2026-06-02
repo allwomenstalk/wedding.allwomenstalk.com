@@ -3,7 +3,7 @@ title: "8 Fun Ideas for a Great Gatsby Themed Wedding ..."
 description: "Great Gatsby save the Date...; Great Gatsby Decor...; Great Gatsby Bridal Style...; Great Gatsby Bridesmaids...; Great Gatsby Wedding Cake...; More ..."
 url: "https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 8 Fun Ideas for a Great Gatsby Themed Wedding ...
@@ -58,16 +58,16 @@ Are you planning a Great Gatsby wedding or do you know someone who is? What do y
 
 ## Related Posts
 
-- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
 - [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
-- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
-- [literary themed wedding](https://wedding.allwomenstalk.com/absolutely-splendid-ideas-for-a-literary-themed-wedding/)
 - [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
+- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
+- [literary themed wedding](https://wedding.allwomenstalk.com/absolutely-splendid-ideas-for-a-literary-themed-wedding/)
+- [rustic wedding ideas bridesmaids](https://wedding.allwomenstalk.com/unique-ways-to-rock-the-rustic-wedding-theme/)
+- [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
 - [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
 - [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
 - [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
-- [rustic wedding ideas bridesmaids](https://wedding.allwomenstalk.com/unique-ways-to-rock-the-rustic-wedding-theme/)
-- [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
+- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 

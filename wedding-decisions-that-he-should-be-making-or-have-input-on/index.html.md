@@ -3,7 +3,7 @@ title: "7 Wedding Decisions That He Should Be Making or Have Input on ..."
 description: "Honeymoon Location; His Best Man; Flavor of the Cake; The Music; The Gift Registry; More ..."
 url: "https://wedding.allwomenstalk.com/wedding-decisions-that-he-should-be-making-or-have-input-on/"
 category: "wedding"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Wedding Decisions That He Should Be Making or Have Input on ...
@@ -42,16 +42,16 @@ There are a lot of details that most grooms are happy to leave to their brides. 
 
 ## Related Posts
 
-- [la maximalist eyeshadow primped](https://wedding.allwomenstalk.com/ways-to-add-fragrance-in-your-wedding/)
-- [cut your wedding guest list](https://wedding.allwomenstalk.com/questions-to-ask-yourself-when-cutting-down-your-wedding-guest-list/)
-- [wedding guest list test](https://wedding.allwomenstalk.com/questions-to-ask-yourself-when-creating-your-wedding-guest-list/)
-- [7 Subtle Personalized Touches to Add to Your Weddi...](https://wedding.allwomenstalk.com/subtle-personalized-touches-to-add-to-your-wedding/)
-- [7 Ways to Be a Happier Bride ...](https://wedding.allwomenstalk.com/ways-to-be-a-happier-bride/)
 - [planning outdoor wedding](https://wedding.allwomenstalk.com/things-to-consider-when-youre-planning-an-outdoor-wedding/)
-- [kitchen registry list](https://wedding.allwomenstalk.com/kitchen-essentials-to-include-in-your-wedding-registry/)
 - [7 Reasons to Hire a Wedding Planner and Avoid Beco...](https://wedding.allwomenstalk.com/reasons-to-hire-a-wedding-planner-and-avoid-becoming-a-bridezilla/)
 - [7 Wedding Checklists You Need to Make ...](https://wedding.allwomenstalk.com/wedding-checklists-you-need-to-make/)
+- [wedding guest list test](https://wedding.allwomenstalk.com/questions-to-ask-yourself-when-creating-your-wedding-guest-list/)
+- [7 Subtle Personalized Touches to Add to Your Weddi...](https://wedding.allwomenstalk.com/subtle-personalized-touches-to-add-to-your-wedding/)
+- [kitchen registry list](https://wedding.allwomenstalk.com/kitchen-essentials-to-include-in-your-wedding-registry/)
+- [7 Ways to Be a Happier Bride ...](https://wedding.allwomenstalk.com/ways-to-be-a-happier-bride/)
+- [cut your wedding guest list](https://wedding.allwomenstalk.com/questions-to-ask-yourself-when-cutting-down-your-wedding-guest-list/)
 - [The Definitive Checklist for Booking Your Wedding ...](https://wedding.allwomenstalk.com/questions-to-ask-about-your-wedding-venue/)
+- [la maximalist eyeshadow primped](https://wedding.allwomenstalk.com/ways-to-add-fragrance-in-your-wedding/)
 - [7 Life Lessons to Teach Your Son ...](https://parenting.allwomenstalk.com/7-life-lessons-to-teach-your-son/)
 - [7 Mistakes Couples Sometimes Make ...](https://allwomenstalk.com/7-mistakes-couples-sometimes-make/)
 
