@@ -1,12 +1,12 @@
 ---
-title: "Vendor Spotlight: CakeMates Handmade Cake Toppers ..."
+title: "Vendor Spotlight: \"CakeMates\" Handmade Cake Toppers ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://wedding.allwomenstalk.com/vendor-spotlight-cakemates-handmade-cake-toppers/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Vendor Spotlight: CakeMates Handmade Cake Toppers ...
+# Vendor Spotlight: "CakeMates" Handmade Cake Toppers ...
 
 Handmade work always amazes me and when I came across [CakeMates](http://survey-smiles.com/), who started following me on twitter, I was just in awe of Kylie's gorgeous **personalized cake toppers**. The beautiful details, the quirky accessories, the smiles of the clay bride and groom, all just warmed my heart with happiness! How incredible is the newlywed couple on the elephant...continue reading to find out more about this cake topper and our **Vendor Spotlight** on [CakeMates](http://www.cakemates.co.uk/)**Handmade Cake Toppers**...
 Getting to Know CakeMates...
@@ -67,7 +67,7 @@ We're so happy to learn more about Kylie and her beautiful handmade cake toppers
 - [Vendor Spotlight: Jolie Papeterie Boutique ...](https://wedding.allwomenstalk.com/vendor-spotlight-jolie-papeterie-boutique/)
 - [Vendor Spotlight: Invitations by Dawn ...](https://wedding.allwomenstalk.com/vendor-spotlight-invitations-by-dawn/)
 - [Vendor Spotlight: Oceanside Designs ...](https://wedding.allwomenstalk.com/vendor-spotlight-oceanside-designs/)
-- [Getting to Know Charmaines Cupcakes ...](https://thecrepescafe.com/getting-to-know-charmaines-cupcakes/)
+- [Getting to Know Charmaine's Cupcakes ...](https://thecrepescafe.com/getting-to-know-charmaines-cupcakes/)
 - [Giveaway Contest: CupcakeTree Handmade Rubber Stam...](https://lifestyle.allwomenstalk.com/giveaway-contest-cupcaketree-handmade-rubber-stamp/)
 - [Giveaway Contest Winner: Cupcake Tree Handmade Sta...](https://lifestyle.allwomenstalk.com/giveaway-contest-winner-cupcake-tree-handmade-stamp/)
 - [13 Darling DIY Gift Toppers ...](https://diy.allwomenstalk.com/darling-diy-gift-toppers/)

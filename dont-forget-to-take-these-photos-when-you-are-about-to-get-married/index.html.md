@@ -1,12 +1,12 @@
 ---
-title: "Dont Forget to Take These Photos when You Are about to Get Married ..."
+title: "Don't Forget to Take These Photos when You Are about to Get Married ..."
 description: "The Shoes; Getting Ready in the Hotel Room; Lacing up; Sweetheart Chairs; The Crowning; More ..."
 url: "https://wedding.allwomenstalk.com/dont-forget-to-take-these-photos-when-you-are-about-to-get-married/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Dont Forget to Take These Photos when You Are about to Get Married ...
+# Don't Forget to Take These Photos when You Are about to Get Married ...
 
 I know that when I got married, I completely and utterly forgot about all of the photos that I wanted to take on my wedding day. I vowed, then and there that I'd pass along all of the photos that you should pass along to your photographer to make sure that they take. Take a look! My fave is #5!
 

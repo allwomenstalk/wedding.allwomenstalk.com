@@ -1,12 +1,12 @@
 ---
-title: "7 Signs Hes about to Propose ..."
+title: "7 Signs He's about to Propose ..."
 description: "Have Most of His Bros Settled down?; Does He Often Absentmindedly Talk about Future Plans?; He Actually Seems Interested in Other Weddings; He Wants to Get a Pet Together; He Talks about Rings; More ..."
 url: "https://wedding.allwomenstalk.com/signs-hes-about-to-propose/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 7 Signs Hes about to Propose ...
+# 7 Signs He's about to Propose ...
 
 So, you've been in a relationship for a while, you know it's serious and you can't wait for him to propose! Trying to read the signs of whether or not he's ready to propose can be quite exciting and frustrating at the same time. Here are guest contributor Adrian Barber's list of signs that he's ready to pop the question!
 
@@ -48,18 +48,18 @@ Whether you pick up on the signs or not, getting engaged is an event you'll neve
 
 ## Related Posts
 
+- [why isn't my relationship working](https://love.allwomenstalk.com/signs-a-relationship-isnt-going-to-work-out/)
 - [is he right for me](https://love.allwomenstalk.com/sure-signs-he-isnt-right-for-you/)
-- [they miss each other](https://love.allwomenstalk.com/signs-youre-starting-to-fall-for-each-other/)
-- [why isnt my relationship working](https://love.allwomenstalk.com/signs-a-relationship-isnt-going-to-work-out/)
-- [passive-aggressive behavior examples](https://love.allwomenstalk.com/signs-your-partner-is-passive-aggressive/)
 - [favourite person meaning in telugu](https://love.allwomenstalk.com/signs-he-could-go-from-your-friend-to-boyfriend/)
+- [they miss each other](https://love.allwomenstalk.com/signs-youre-starting-to-fall-for-each-other/)
 - [how can you tell when a man is lying](https://love.allwomenstalk.com/signs-your-man-is-telling-lies/)
-- [its not a date](https://love.allwomenstalk.com/sure-signs-that-its-not-a-date/)
-- [when its time to let go of a relationship](https://love.allwomenstalk.com/signs-its-time-to-let-go-of-a-relationship-2/)
 - [do guys like love notes](https://love.allwomenstalk.com/sure-signs-hes-a-keeper/)
-- [youll never be good enough for the wrong person](https://love.allwomenstalk.com/obvious-signs-you-are-dating-the-wrong-person/)
-- [7 Signs Its Time to Move in Together ...](https://lifestyle.allwomenstalk.com/signs-its-time-to-move-in-together/)
-- [7 Signs Hes Ready to Move in ...](https://love.allwomenstalk.com/signs-hes-ready-to-move-in/)
+- [passive-aggressive behavior examples](https://love.allwomenstalk.com/signs-your-partner-is-passive-aggressive/)
+- [it's not a date](https://love.allwomenstalk.com/sure-signs-that-its-not-a-date/)
+- [when it's time to let go of a relationship](https://love.allwomenstalk.com/signs-its-time-to-let-go-of-a-relationship-2/)
+- [you'll never be good enough for the wrong person](https://love.allwomenstalk.com/obvious-signs-you-are-dating-the-wrong-person/)
+- [7 Signs It's Time to Move in Together ...](https://lifestyle.allwomenstalk.com/signs-its-time-to-move-in-together/)
+- [7 Signs He's Ready to Move in ...](https://love.allwomenstalk.com/signs-hes-ready-to-move-in/)
 
 ## Site Information
 

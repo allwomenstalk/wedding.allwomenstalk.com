@@ -1,12 +1,12 @@
 ---
-title: "Take a Look at Solange Knowles Sweet Honeymoon Photos ..."
+title: "Take a Look at Solange Knowles' Sweet Honeymoon Photos ..."
 description: "Coral Blues; Beach Time; Dancing Queen; Protector; Decor; More ..."
 url: "https://wedding.allwomenstalk.com/take-a-look-at-solange-knowles-sweet-honeymoon-photos/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Take a Look at Solange Knowles Sweet Honeymoon Photos ...
+# Take a Look at Solange Knowles' Sweet Honeymoon Photos ...
 
 Solange has never looked so happy! The singer shared a series of sweet traveling photos from her honeymoon with video director Alan Ferguson in Brazil. "Brazil could not have been kinder to us and our love," she wrote in one of the captions. Although she didn't pose with Ferguson in any of the pictures, she did share two loving photos of him! Check it out:
 
@@ -84,15 +84,15 @@ Are you following Solange on Instagram? If not, follow her on @saintrecords!
 
 ## Related Posts
 
-- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
-- [ojly fans](https://fashion.allwomenstalk.com/kim-kardashian-for-vogue-australias-feb-cover/)
-- [jlo 2014](https://celebs.allwomenstalk.com/killer-jennifer-lopez-looks-from/)
-- [lance bass](https://celebs.allwomenstalk.com/which-nsync-band-member-performed-at-lance-bass-wedding-ceremony/)
-- [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
-- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
-- [This is What Kim Kardashian Would Print with a 3D ...](https://celebs.allwomenstalk.com/this-is-what-kim-kardashian-would-print-with-a-3d-printer/)
 - [victoria secret models no makeup](https://makeup.allwomenstalk.com/the-power-of-makeup-wait-til-you-see-these-victoria-secrets-models-au-naturel/)
+- [gigi hadid step dad](https://celebs.allwomenstalk.com/facts-about-model-gigi-hadid-thatll-make-you-wish-you-were-bffs/)
+- [lance bass](https://celebs.allwomenstalk.com/which-nsync-band-member-performed-at-lance-bass-wedding-ceremony/)
+- [This is What Kim Kardashian Would Print with a 3D ...](https://celebs.allwomenstalk.com/this-is-what-kim-kardashian-would-print-with-a-3d-printer/)
+- [blank space mom parody](https://funny.allwomenstalk.com/taylor-swifts-blank-space-gets-mom-fied-in-hilarious-parody/)
 - [helen mirren casual clothes](https://celebs.allwomenstalk.com/gorgeous-at-every-age-a-peek-inside-helen-mirrens-lookbook/)
+- [jlo 2014](https://celebs.allwomenstalk.com/killer-jennifer-lopez-looks-from/)
+- [ojly fans](https://fashion.allwomenstalk.com/kim-kardashian-for-vogue-australias-feb-cover/)
+- [fifty shades of grey release date](https://music.allwomenstalk.com/new-fifty-shades-of-grey-movie-soundtrack-song-released-whos-the-singer/)
 - [stockholm victoria secret](https://travel.allwomenstalk.com/where-do-victorias-secret-models-go-on-holiday/)
 - [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
 - [Spring Sneak Peek ...](https://allwomenstalk.com/spring-sneak-peek/)

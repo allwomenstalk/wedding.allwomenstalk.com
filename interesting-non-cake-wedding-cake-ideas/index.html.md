@@ -3,7 +3,7 @@ title: "7 Interesting Non-Cake Wedding Cake Ideas ..."
 description: "Rice Krispie Treat Wedding Cake...; Welsh Cakes...; Homemade Pie...; Macaron Tower...; Donut Stand...; More ..."
 url: "https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Interesting Non\-Cake Wedding Cake Ideas ...
@@ -66,15 +66,15 @@ Whether you want to replace your wedding cake with these non-cake alternatives o
 
 ## Related Posts
 
-- [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
 - [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
-- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
-- [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
-- [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
-- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
 - [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
+- [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
+- [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
 - [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
+- [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
+- [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
+- [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
 - [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)

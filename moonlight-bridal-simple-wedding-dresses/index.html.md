@@ -3,7 +3,7 @@ title: "When Less is More in Wedding Dress Choices"
 description: "T133: A Tribute to Timeless Elegance; T125: Embrace the Drama; T124: A Symphony of Grace; The Alluring Appeal of Simplicity; Why Choose Simple Over Ornate?; More ..."
 url: "https://wedding.allwomenstalk.com/moonlight-bridal-simple-wedding-dresses/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # When Less is More in Wedding Dress Choices

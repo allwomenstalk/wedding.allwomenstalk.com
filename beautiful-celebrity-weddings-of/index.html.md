@@ -3,7 +3,7 @@ title: "9 Breathtaking Celebrity Weddings of 2013 We Still Think About"
 description: "Chris Kirkpatrick; Megan Hilty; Danielle Fishel; Rider Strong; Kelly Clarkson; More ..."
 url: "https://wedding.allwomenstalk.com/beautiful-celebrity-weddings-of/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 9 Breathtaking Celebrity Weddings of 2013 We Still Think About
@@ -94,18 +94,18 @@ Which celebrity wedding of 2013 was your favorite? Will any of the gowns inspire
 
 ## Related Posts
 
-- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [historic actors](https://movies.allwomenstalk.com/celebrities-who-played-historical-figures-perfectly/)
-- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
-- [hottest greys anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
-- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [greedy famous person](https://celebs.allwomenstalk.com/celebrities-who-embody-the-7-deadly-sins/)
-- [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [hottest grey's anatomy characters](https://movies.allwomenstalk.com/hottest-guys-on-greys-anatomy-that-we-cant-help-but-love/)
+- [celebs with big hair](https://celebs.allwomenstalk.com/celebrities-who-cut-their-long-hair-short/)
 - [coolest celebrity tattoos](https://celebs.allwomenstalk.com/best-celebrity-tattoos-that-youre-sure-to-love/)
 - [celebrities that are 15](https://celebs.allwomenstalk.com/celebrities-who-are-a-lot-older-than-you-think/)
-- [brittany murphy deces](https://celebs.allwomenstalk.com/of-the-most-sudden-celebrity-deaths/)
+- [british actors that do american accents](https://movies.allwomenstalk.com/british-actors-who-can-do-american-accents-perfectly/)
+- [hard actors to guess](https://movies.allwomenstalk.com/actors-who-turned-down-legendary-roles/)
+- [tina fey daughter alice](https://celebs.allwomenstalk.com/celebrity-kids-who-looks-like-their-parents/)
 - [5 Celebrity Weddings of Spring 2011 ...](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
-- [9 Fabulous  Inspiring Wedding Songs of 2011 ...](https://wedding.allwomenstalk.com/fabulous-inspiring-wedding-songs-of/)
+- [9 Fabulous & Inspiring Wedding Songs of 2011 ...](https://wedding.allwomenstalk.com/fabulous-inspiring-wedding-songs-of/)
 
 ## Site Information
 

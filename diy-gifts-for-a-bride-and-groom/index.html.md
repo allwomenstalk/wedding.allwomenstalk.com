@@ -3,7 +3,7 @@ title: "7 DIY Gifts for a Bride and Groom ..."
 description: "Shadowbox; Mason Jar with Wedding Photo; Canvas with First Dance Lyrics; Personalized His and Hers Wine Glasses; Personalized Map; More ..."
 url: "https://wedding.allwomenstalk.com/diy-gifts-for-a-bride-and-groom/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 DIY Gifts for a Bride and Groom ...
@@ -44,16 +44,16 @@ Top Image Source: [etsy.com](http://www.etsy.com?ref=allwomenstalk.com)
 
 ## Related Posts
 
-- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
 - [mr adorable](https://wedding.allwomenstalk.com/adorable-mr-mrs-wedding-items-to-buy/)
-- [transportation ideas for wedding](https://wedding.allwomenstalk.com/fun-wedding-transportation-ideas-2/)
-- [deceased parent on wedding invitation](https://wedding.allwomenstalk.com/beautiful-ways-to-remember-a-deceased-parent-at-your-wedding/)
+- [baseball themed wedding](https://wedding.allwomenstalk.com/ways-to-plan-a-baseball-theme-wedding/)
 - [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
-- [tips on how to reduce wedding costs](https://wedding.allwomenstalk.com/smart-ways-to-cut-costs-for-your-wedding/)
-- [weird wedding cakes](https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/)
 - [wedding at dia](https://wedding.allwomenstalk.com/ways-to-plan-a-dia-de-los-muertos-wedding/)
+- [tips on how to reduce wedding costs](https://wedding.allwomenstalk.com/smart-ways-to-cut-costs-for-your-wedding/)
+- [transportation ideas for wedding](https://wedding.allwomenstalk.com/fun-wedding-transportation-ideas-2/)
 - [fall apple decorations](https://wedding.allwomenstalk.com/apple-decor-wedding-ideas-for-fall/)
 - [crazy things to do before marriage](https://love.allwomenstalk.com/things-to-do-before-you-get-married/)
+- [weird wedding cakes](https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/)
+- [deceased parent on wedding invitation](https://wedding.allwomenstalk.com/beautiful-ways-to-remember-a-deceased-parent-at-your-wedding/)
 - [8 Interesting Bridal Shower Gifts for a Bride ...](https://wedding.allwomenstalk.com/8-interesting-bridal-shower-gifts-for-a-bride/)
 - [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
 

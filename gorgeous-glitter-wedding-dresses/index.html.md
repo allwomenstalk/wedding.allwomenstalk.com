@@ -3,7 +3,7 @@ title: "8 Gorgeous Glitter Wedding Dresses ..."
 description: "Elie Saab Pink Glitter Wedding Dress...; Elie Saab Short Glitter Wedding Dress...; Pam Chorley Glitter Wedding Dress...; BHLDN Glitter Wedding Dress...; Sarah Seven Short Glitter Wedding Dress...; More ..."
 url: "https://wedding.allwomenstalk.com/gorgeous-glitter-wedding-dresses/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 8 Gorgeous Glitter Wedding Dresses ...
@@ -80,14 +80,14 @@ I love that glitter wedding dresses come in so many colors, shapes, and silhouet
 
 - [modern lace wedding dress](https://wedding.allwomenstalk.com/gorgeous-lace-wedding-gowns/)
 - [red dress names](https://fashion.allwomenstalk.com/stunning-red-dresses-that-make-a-statement/)
-- [modern vintage bridesmaid dresses](https://wedding.allwomenstalk.com/beautiful-alfred-angelo-bridesmaid-dresses/)
-- [halloween wedding](https://wedding.allwomenstalk.com/unusual-wedding-gowns/)
-- [vivienne westwood pink wedding dress](https://wedding.allwomenstalk.com/beautiful-movie-wedding-dresses/)
-- [strapless ruffle wedding dress](https://wedding.allwomenstalk.com/playful-ruffle-wedding-dresses/)
-- [cute holiday dresses](https://fashion.allwomenstalk.com/cute-holiday-dresses/)
-- [alfred angelo flower girl dress](https://wedding.allwomenstalk.com/gorgeous-alfred-angelo-wedding-dresses/)
-- [bridesmaid dresses winter wedding](https://wedding.allwomenstalk.com/lovely-winter-bridesmaids-dresses/)
 - [dressing art deco](https://fashion.allwomenstalk.com/art-deco-dresses-to-wear/)
+- [cute holiday dresses](https://fashion.allwomenstalk.com/cute-holiday-dresses/)
+- [bridesmaid dresses winter wedding](https://wedding.allwomenstalk.com/lovely-winter-bridesmaids-dresses/)
+- [vivienne westwood pink wedding dress](https://wedding.allwomenstalk.com/beautiful-movie-wedding-dresses/)
+- [modern vintage bridesmaid dresses](https://wedding.allwomenstalk.com/beautiful-alfred-angelo-bridesmaid-dresses/)
+- [strapless ruffle wedding dress](https://wedding.allwomenstalk.com/playful-ruffle-wedding-dresses/)
+- [alfred angelo flower girl dress](https://wedding.allwomenstalk.com/gorgeous-alfred-angelo-wedding-dresses/)
+- [halloween wedding](https://wedding.allwomenstalk.com/unusual-wedding-gowns/)
 - [8 Super Glamorous Sequined Essentials ...](https://fashion.allwomenstalk.com/super-glamorous-sequined-essentials/)
 - [8 Gorgeous Wedding Veils ...](https://wedding.allwomenstalk.com/8-gorgeous-wedding-veils/)
 

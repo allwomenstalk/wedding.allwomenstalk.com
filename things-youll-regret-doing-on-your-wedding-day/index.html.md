@@ -1,12 +1,12 @@
 ---
-title: "The Biggest Things Youll Regret Doing on Your Wedding Day ..."
+title: "The Biggest Things You'll Regret Doing on Your Wedding Day ..."
 description: "Inviting People You Don't Know; A Weird Hairstyle; Getting the Right Pictures; Paper Invitations and RSVPs; Spending the Money on an Expensive Hotel Room; More ..."
 url: "https://wedding.allwomenstalk.com/things-youll-regret-doing-on-your-wedding-day/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# The Biggest Things Youll Regret Doing on Your Wedding Day ...
+# The Biggest Things You'll Regret Doing on Your Wedding Day ...
 
 Your big day is all about you and it's the one chance you get to make sure you're the center of attention (without being Bridezilla, of course). That means there are some **things you'll regret doing on your wedding day** if you listen to what everyone else wants. Your groom is really the only other person who should get to make decisions about your wedding so don't let yourself get talked into doing things you don't want to do. Here are what brides say are the **things you'll regret most on your wedding day**.
 
@@ -42,16 +42,16 @@ What was your biggest wedding day regret?
 
 ## Related Posts
 
-- [best wedding tips ever](https://wedding.allwomenstalk.com/best-ever-wedding-planning-tips/)
 - [wedding dress pockets](https://wedding.allwomenstalk.com/worthwhile-things-to-keep-in-your-pocketed-wedding-dress/)
-- [efficient event coordination](https://lifestyle.allwomenstalk.com/amazing-cost-effective-event-planning-tips/)
-- [69 million wedding](https://wedding.allwomenstalk.com/most-expensive-weddings-ever/)
-- [budget dream weddings](https://wedding.allwomenstalk.com/ways-to-fund-the-wedding-of-your-dreams/)
-- [tips for choosing the perfect designer dress for a...](https://fashion.allwomenstalk.com/top-tips-for-choosing-the-perfect-wedding-guest-outfit/)
-- [yourstrulymedia](https://wedding.allwomenstalk.com/yours-truly-media-on-creating-a-safe-environment-at-your-wedding-amidst-covid-19/)
-- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
 - [wedding invitation trends](https://wedding.allwomenstalk.com/top-wedding-invitation-trends/)
+- [69 million wedding](https://wedding.allwomenstalk.com/most-expensive-weddings-ever/)
+- [yourstrulymedia](https://wedding.allwomenstalk.com/yours-truly-media-on-creating-a-safe-environment-at-your-wedding-amidst-covid-19/)
 - [wedding invitation design layout](https://wedding.allwomenstalk.com/wedding-invitation-design-and-layout-tips/)
+- [best wedding tips ever](https://wedding.allwomenstalk.com/best-ever-wedding-planning-tips/)
+- [tips for choosing the perfect designer dress for a...](https://fashion.allwomenstalk.com/top-tips-for-choosing-the-perfect-wedding-guest-outfit/)
+- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
+- [efficient event coordination](https://lifestyle.allwomenstalk.com/amazing-cost-effective-event-planning-tips/)
+- [budget dream weddings](https://wedding.allwomenstalk.com/ways-to-fund-the-wedding-of-your-dreams/)
 - [8 Things People Hate about Weddings ...](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 

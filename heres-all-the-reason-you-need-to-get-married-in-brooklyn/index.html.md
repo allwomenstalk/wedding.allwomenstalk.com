@@ -1,12 +1,12 @@
 ---
-title: "Heres All the Reason You Need to Get Married in Brooklyn ..."
+title: "Here's All the Reason You Need to Get Married in Brooklyn ..."
 description: "Oh Stella Studios' Bauer Wedding, One; Oh Stella Studios' Bauer Wedding, Two; Martina Micko's Graffiti Couple, One; Martina Micko's Graffiti Couple, Two; Martina Micko's Graffiti Couple, Three; More ..."
 url: "https://wedding.allwomenstalk.com/heres-all-the-reason-you-need-to-get-married-in-brooklyn/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Heres All the Reason You Need to Get Married in Brooklyn ...
+# Here's All the Reason You Need to Get Married in Brooklyn ...
 
 If the first words to pop into your head when I say "Brooklyn" aren't "romance" or "wedding," it's time to have a peek at some wedding photos shot right here in New York's hippest borough. It's edgy, cool, and apparently, it's a gorg backdrop for your most romantic day ever. Here are a few photos Down Under the Brooklyn Bridge (DUMBO) to show you what I mean.
 
@@ -107,7 +107,7 @@ If the first words to pop into your head when I say "Brooklyn" aren't "romance" 
 - [7 Reasons to Get Married at the Courthouse ...](https://wedding.allwomenstalk.com/reasons-to-get-married-at-the-courthouse/)
 - [7 Worst Reasons to Get Married ...](https://wedding.allwomenstalk.com/worst-reasons-to-get-married/)
 - [9 Best Reasons to Elope with the Love of Your Life...](https://wedding.allwomenstalk.com/best-reasons-to-elope/)
-- [7 Reasons Why Its Okay to Not Get Married ...](https://love.allwomenstalk.com/reasons-why-its-okay-to-not-get-married/)
+- [7 Reasons Why It's Okay to Not Get Married ...](https://love.allwomenstalk.com/reasons-why-its-okay-to-not-get-married/)
 
 ## Site Information
 

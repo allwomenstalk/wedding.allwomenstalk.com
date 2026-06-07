@@ -3,7 +3,7 @@ title: "7 Hints to Give Your Boyfriend about the Engagement Ring You Want ..."
 description: "The Type of Metal You Want; The Cut of Stone You Want; The Size of the Diamond; Show Him Pictures of Rings You like; The Type of Stone You like; More ..."
 url: "https://wedding.allwomenstalk.com/hints-to-give-your-boyfriend-about-the-engagement-ring-you-want/"
 category: "wedding"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # 7 Hints to Give Your Boyfriend about the Engagement Ring You Want ...
@@ -42,16 +42,16 @@ These are 7 hints you may want to give your boyfriend. What type of engagement r
 
 ## Related Posts
 
-- [he didnt touch me on first date](https://love.allwomenstalk.com/important-things-you-can-tell-about-a-man-on-the-first-date/)
-- [look for a boyfriend](https://teen.allwomenstalk.com/places-teens-can-look-for-boyfriends/)
-- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
-- [dating different cultures](https://love.allwomenstalk.com/tips-for-dating-someone-from-another-culture/)
 - [how to get your boyfriend in the mood](https://love.allwomenstalk.com/ways-to-tell-him-youre-in-the-mood-without-saying-a-word/)
-- [i will tell him how i feel](https://love.allwomenstalk.com/reasons-to-just-tell-him-how-you-feel/)
-- [flaws in a guy](https://love.allwomenstalk.com/tips-to-help-you-overlook-your-guys-flaws/)
-- [when a guy wants to show you off](https://love.allwomenstalk.com/ways-a-proud-boyfriend-will-show-you-off/)
-- [how to turn on a boyfriend](https://love.allwomenstalk.com/ways-to-turn-your-boyfriend-into-a-fiance/)
+- [dating different cultures](https://love.allwomenstalk.com/tips-for-dating-someone-from-another-culture/)
 - [caring gestures](https://love.allwomenstalk.com/sweet-gestures-to-make-that-show-him-you-care/)
+- [how to turn on a boyfriend](https://love.allwomenstalk.com/ways-to-turn-your-boyfriend-into-a-fiance/)
+- [when a guy wants to show you off](https://love.allwomenstalk.com/ways-a-proud-boyfriend-will-show-you-off/)
+- [flaws in a guy](https://love.allwomenstalk.com/tips-to-help-you-overlook-your-guys-flaws/)
+- [how to flirt properly](https://love.allwomenstalk.com/ways-to-be-a-great-flirt/)
+- [look for a boyfriend](https://teen.allwomenstalk.com/places-teens-can-look-for-boyfriends/)
+- [i will tell him how i feel](https://love.allwomenstalk.com/reasons-to-just-tell-him-how-you-feel/)
+- [he didn't touch me on first date](https://love.allwomenstalk.com/important-things-you-can-tell-about-a-man-on-the-first-date/)
 - [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 - [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
 
