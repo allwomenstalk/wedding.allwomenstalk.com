@@ -3,7 +3,7 @@ title: "8 Recently Engaged Celebrities ..."
 description: "Kelly Clarkson...; Curtis Stone & Lindsay Price...; George Lucas...; Jesse Tyler Ferguson...; Sofia Vergara...; More ..."
 url: "https://wedding.allwomenstalk.com/recently-engaged-celebrities/"
 category: "wedding"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # 8 Recently Engaged Celebrities ...
@@ -62,14 +62,14 @@ Did your favorite recently engaged celebrity make my list? I'm really excited to
 
 ## Related Posts
 
-- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
-- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
 - [male british actors in their 40s](https://celebs.allwomenstalk.com/sexiest-male-british-actors/)
-- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
-- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
-- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
-- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
 - [taurus celebrities male rappers](https://movies.allwomenstalk.com/rappers-turned-actors/)
+- [trends started by celebrities](https://celebs.allwomenstalk.com/trends-started-by-celebrities/)
+- [best celebrity marriages](https://celebs.allwomenstalk.com/long-lasting-celebrity-marriages/)
+- [alanis morissette spouse](https://celebs.allwomenstalk.com/celebrity-couples-who-never-made-it-down-the-aisle/)
+- [when love crossed over](https://movies.allwomenstalk.com/movie-stars-that-crossed-over-to-tv/)
+- [sky ferreira michael jackson](https://lifestyle.allwomenstalk.com/music-stars-to-watch-in/)
+- [gordon rasmsay](https://celebs.allwomenstalk.com/celebs-youre-ashamed-to-admit-you-have-a-crush-on/)
 - [gamer celebrities](https://lifestyle.allwomenstalk.com/celebrity-girl-gamers/)
 - [worst relationship advice](https://celebs.allwomenstalk.com/celebrities-whod-give-you-the-worst-relationship-advice-ever/)
 - [8 Most Adorable Celebrity Proposal Stories ...](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)

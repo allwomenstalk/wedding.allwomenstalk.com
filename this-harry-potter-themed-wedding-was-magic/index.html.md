@@ -3,7 +3,7 @@ title: "This Harry Potter Themed Wedding Was Magic!"
 description: "The Location; The Decorations; Her Shoes; Her Mani; More Decor; More ..."
 url: "https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/"
 category: "wedding"
-last_updated: "2026-06-07"
+last_updated: "2026-06-11"
 ---
 
 # This Harry Potter Themed Wedding Was Magic!
@@ -104,16 +104,16 @@ Gorgeous wedding-day photos by Kelly Clarke. To see more photos of the magic, vi
 
 ## Related Posts
 
-- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
-- [gateau geode](https://wedding.allwomenstalk.com/these-geode-wedding-cakes-will-blow-your-mind/)
 - [ring finger tattoo roman numeral](https://wedding.allwomenstalk.com/amazing-wedding-ring-alternatives-for-untraditional-couples/)
-- [harry potter hat cake](https://wedding.allwomenstalk.com/harry-potter-themed-wedding-cakes-for-the-nerd-in-you/)
+- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
 - [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
 - [soft glam wedding guest makeup](https://wedding.allwomenstalk.com/wedding-makeup-inspos-to-be-the-prettiest-bride-on-your-big-day/)
+- [gateau geode](https://wedding.allwomenstalk.com/these-geode-wedding-cakes-will-blow-your-mind/)
+- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
+- [wedding train movie](https://wedding.allwomenstalk.com/romantic-girls-will-swoon-with-envy-over-the-most-expensive-movie-weddings/)
+- [harry potter hat cake](https://wedding.allwomenstalk.com/harry-potter-themed-wedding-cakes-for-the-nerd-in-you/)
 - [celebrating engagement](https://wedding.allwomenstalk.com/inspiring-ways-to-celebrate-getting-engaged-to-your-sweetheart/)
 - [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
-- [wedding train movie](https://wedding.allwomenstalk.com/romantic-girls-will-swoon-with-envy-over-the-most-expensive-movie-weddings/)
-- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
 - [4 Amazing Wedding Shots You Need to See!](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
 - [Real Wedding: Get Your Party on in New Jersey!](https://wedding.allwomenstalk.com/real-wedding-get-your-party-on-in-new-jersey/)
 
