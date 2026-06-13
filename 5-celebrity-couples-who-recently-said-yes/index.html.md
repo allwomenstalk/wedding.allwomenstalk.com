@@ -3,7 +3,7 @@ title: "5 Celebrity Couples Who Recently Said Yes!"
 description: "The Sweet Girl Next Door...; A Beautiful Swan...; A Smooth Singer...; The Celebrity Cowboy...; First a Divorce, Now an Engagement...; More ..."
 url: "https://wedding.allwomenstalk.com/5-celebrity-couples-who-recently-said-yes/"
 category: "wedding"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 5 Celebrity Couples Who Recently Said Yes!
@@ -54,16 +54,16 @@ Top Photo: [Lepaparazzi.blogspot.com](http://lepaparazzi.blogspot.com/)
 
 ## Related Posts
 
-- [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
-- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
-- [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
-- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
 - [celebrity marriage proposals](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
-- [shaya charvet football](https://parenting.allwomenstalk.com/things-celebrity-parents-tweet-about/)
-- [hottest heroes](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
-- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
 - [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
+- [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
+- [hottest heroes](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
+- [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
+- [shaya charvet football](https://parenting.allwomenstalk.com/things-celebrity-parents-tweet-about/)
+- [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
+- [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [25 Most Expensive Celebrity Weddings of All Time ....](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
 - [Most Fashionable Celebrity Parents](https://allwomenstalk.com/most-fashionable-celebrity-parents/)
 

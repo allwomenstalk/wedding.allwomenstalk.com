@@ -3,7 +3,7 @@ title: "6 Amazing Wedding Cakes Too Pretty to Eat!"
 description: "Perfect for a Winter Wedding...; Pretty in Pink and Teal...; Tropical Paradise...; Lovely Little Details...; Roses Are Red...; More ..."
 url: "https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/"
 category: "wedding"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 6 Amazing Wedding Cakes Too Pretty to Eat!
@@ -106,16 +106,16 @@ Top Image: [GreenWeddingShoes.com](https://web.archive.org/web/https://greenwedd
 
 ## Related Posts
 
-- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
-- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
-- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
-- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
 - [8 Advantages of a Winter Wedding …](https://wedding.allwomenstalk.com/8-advantages-of-a-winter-wedding/)
-- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
-- [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
 - [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
-- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
+- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
+- [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
+- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
+- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
+- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
+- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
+- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 

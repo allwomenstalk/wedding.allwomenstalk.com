@@ -3,7 +3,7 @@ title: "7 Places to Shop for Wedding Décor ..."
 description: "Save-on-crafts.com; Dollar Tree; Hobby Lobby; Oriental Trader; Etsy.com; More ..."
 url: "https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/"
 category: "wedding"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Places to Shop for Wedding Décor ...
@@ -42,15 +42,15 @@ Weddings are exciting to plan and fun to decorate, especially if you have a head
 
 ## Related Posts
 
-- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
-- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
-- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
-- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
-- [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
-- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
-- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
 - [8 year anniversary gift traditional](https://wedding.allwomenstalk.com/first-wedding-anniversary-gift-ideas/)
+- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
+- [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
 - [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
+- [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
+- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
+- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
+- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
+- [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
 - [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)

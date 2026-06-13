@@ -3,7 +3,7 @@ title: "4 DIY Wedding Card Ideas ..."
 description: "We're Getting Married...; Join Us in Celebrating...; Throw a Shower...; Congrats to the Newlyweds...; More ..."
 url: "https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/"
 category: "wedding"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 4 DIY Wedding Card Ideas ...
@@ -46,16 +46,16 @@ After all the planning, the big day has finally come and you need a card for the
 
 ## Related Posts
 
+- [pretty wedding cakes](https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/)
+- [5 Peony Bouquets to Brighten up Your Wedding Day ....](https://wedding.allwomenstalk.com/peony-bouquets-to-brighten-up-your-wedding-day/)
+- [loreal paris color le stylo eye shadow spark](https://wedding.allwomenstalk.com/ways-to-color-your-beach-wedding/)
+- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
+- [how to plan a wedding in 3 months with a small bud...](https://wedding.allwomenstalk.com/steps-to-plan-a-wedding-in-30-days/)
 - [emmy's bridal](https://wedding.allwomenstalk.com/real-wedding-fireworks-in-ohio/)
-- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
 - [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
 - [rain on wedding day quotes](https://wedding.allwomenstalk.com/wedding-superstitions-from-around-the-world/)
-- [pretty wedding cakes](https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/)
-- [loreal paris color le stylo eye shadow spark](https://wedding.allwomenstalk.com/ways-to-color-your-beach-wedding/)
-- [5 Peony Bouquets to Brighten up Your Wedding Day ....](https://wedding.allwomenstalk.com/peony-bouquets-to-brighten-up-your-wedding-day/)
-- [how to plan a wedding in 3 months with a small bud...](https://wedding.allwomenstalk.com/steps-to-plan-a-wedding-in-30-days/)
-- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
 - [wedding blog guest post](https://wedding.allwomenstalk.com/favourite-weddings-guest-blogger-diana-from-express-o/)
+- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [3 Wedding Themes Inspired by Paper Goods ...](https://wedding.allwomenstalk.com/3-wedding-themes-inspired-by-paper-goods/)
 

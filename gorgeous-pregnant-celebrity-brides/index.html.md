@@ -3,7 +3,7 @@ title: "7 Gorgeous Pregnant Celebrity Brides ..."
 description: "Drew Barrymore...; Bethenny Frankel...; Julianna Margulies...; Alicia Keys...; Lily Allen...; More ..."
 url: "https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/"
 category: "wedding"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Gorgeous Pregnant Celebrity Brides ...
@@ -64,16 +64,16 @@ Whether you embrace your bump in a tight, belly hugging gown or you decide to hi
 
 ## Related Posts
 
-- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
 - [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
-- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
+- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
 - [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
-- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
 - [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
+- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
+- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
 - [5 Real Brides That Will Catch Your Eye ...](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 - [5 Bridal Looks Right from the Golden Globes ...](https://wedding.allwomenstalk.com/5-bridal-looks-right-from-the-golden-globes/)
 

@@ -3,7 +3,7 @@ title: "7 Hot Wedding Photography Trends for 2013 ..."
 description: "Boudoir Shoots; Same-Day-Edit Slideshows; Photo Booths; First Looks; Online Viewing Galleries; More ..."
 url: "https://wedding.allwomenstalk.com/hot-wedding-photography-trends-for/"
 category: "wedding"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 7 Hot Wedding Photography Trends for 2013 ...
@@ -44,16 +44,16 @@ Thanks, Damien, for sharing your helpful tips and advice! Which of these wedding
 
 ## Related Posts
 
-- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
 - [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
 - [unique save the date ideas](https://wedding.allwomenstalk.com/creative-save-the-date-ideas/)
-- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
 - [7 ways to honor your mother](https://wedding.allwomenstalk.com/special-ways-to-honor-mom-at-your-wedding/)
+- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
+- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
 - [what is bride garter](https://wedding.allwomenstalk.com/creative-wedding-garter-ideas/)
 - [ways to display photos at wedding](https://wedding.allwomenstalk.com/fun-ways-to-display-photos-at-your-wedding/)
-- [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
-- [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
 - [deco table gatsby](https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/)
+- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [wedding planning platform](https://wedding.allwomenstalk.com/wedding-planning-apps-youve-got-to-have/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 

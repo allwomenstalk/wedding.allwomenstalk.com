@@ -3,7 +3,7 @@ title: "3 Hot Color Palette Trends for Your 2011 Wedding ..."
 description: "Pink and Gray Are Here to Stay...; Green & Orange All Year Long...; Aquamarine & Gold Glitter in the Sun...; More ..."
 url: "https://wedding.allwomenstalk.com/hot-color-palette-trends-for-your-wedding/"
 category: "wedding"
-last_updated: "2026-06-11"
+last_updated: "2026-06-13"
 ---
 
 # 3 Hot Color Palette Trends for Your 2011 Wedding ...
@@ -40,16 +40,16 @@ Top Photo: [StyleMePretty.com](https://www.stylemepretty.com/2010/12/17/palos-ve
 
 ## Related Posts
 
-- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [5 Flowers for 2011 ...](https://gardening.allwomenstalk.com/flowers-for/)
-- [2006 trends](https://allwomenstalk.com/trendy-year-wrap-up/)
+- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
+- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
+- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
-- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
-- [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
+- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/affordable-spring-trends/)
+- [2006 trends](https://allwomenstalk.com/trendy-year-wrap-up/)
 - [trends of 2012](https://fashion.allwomenstalk.com/must-do-trends-for/)
-- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
 - [6 Creative Styles for Your Wedding Aisle ...](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
 - [6 Perfect Combinations for Fall Wedding Colors ...](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
 
