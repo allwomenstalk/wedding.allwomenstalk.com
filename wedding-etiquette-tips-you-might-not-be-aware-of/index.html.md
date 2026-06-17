@@ -3,7 +3,7 @@ title: "10 Wedding Etiquette Tips You Might Not Be Aware of ..."
 description: "Who Pays for What?; Tasks for the Mother of the Groom; Responsibilities of the Maid of Honor; The save the Date Etiquette; Groom's Cake; More ..."
 url: "https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/"
 category: "wedding"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 10 Wedding Etiquette Tips You Might Not Be Aware of ...
@@ -57,15 +57,15 @@ Top Photo Credit: [data.whicdn.com](http://data.whicdn.com/images/14084016/uniqu
 ## Related Posts
 
 - [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
-- [winter wedding invitations cheap](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
-- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
-- [unique centerpieces](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [pittsburgh steelers cake](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 - [elizabeth taylor on marriage](https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/)
 - [4 Amazing Wedding Shots You Need to See!](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
-- [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
 - [colonial baptist church wintersville ohio](https://wedding.allwomenstalk.com/real-wedding-military-love-in-pittsburgh/)
+- [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
+- [winter wedding invitations cheap](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
+- [unique centerpieces](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [wedding catastrophe](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
+- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 - [7 Travel Tips You Should Know ...](https://travel.allwomenstalk.com/travel-tips-you-should-know/)
 - [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 

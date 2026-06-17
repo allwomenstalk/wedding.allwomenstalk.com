@@ -3,7 +3,7 @@ title: "This Harry Potter Themed Wedding Was Magic!"
 description: "The Location; The Decorations; Her Shoes; Her Mani; More Decor; More ..."
 url: "https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/"
 category: "wedding"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # This Harry Potter Themed Wedding Was Magic!
@@ -104,14 +104,14 @@ Gorgeous wedding-day photos by Kelly Clarke. To see more photos of the magic, vi
 
 ## Related Posts
 
-- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
 - [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
-- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
 - [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
 - [celebrating engagement](https://wedding.allwomenstalk.com/inspiring-ways-to-celebrate-getting-engaged-to-your-sweetheart/)
 - [soft glam wedding guest makeup](https://wedding.allwomenstalk.com/wedding-makeup-inspos-to-be-the-prettiest-bride-on-your-big-day/)
 - [wedding train movie](https://wedding.allwomenstalk.com/romantic-girls-will-swoon-with-envy-over-the-most-expensive-movie-weddings/)
+- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
 - [harry potter hat cake](https://wedding.allwomenstalk.com/harry-potter-themed-wedding-cakes-for-the-nerd-in-you/)
+- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
 - [ring finger tattoo roman numeral](https://wedding.allwomenstalk.com/amazing-wedding-ring-alternatives-for-untraditional-couples/)
 - [gateau geode](https://wedding.allwomenstalk.com/these-geode-wedding-cakes-will-blow-your-mind/)
 - [4 Amazing Wedding Shots You Need to See!](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)

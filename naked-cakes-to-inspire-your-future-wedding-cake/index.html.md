@@ -3,7 +3,7 @@ title: "25 Naked Cakes to Inspire Your Future Wedding Cake ..."
 description: "Barely Naked Cake; Powdered Sugar and Flowers; Pinks and Reds; Lavender and Herbs; Overflow; More ..."
 url: "https://wedding.allwomenstalk.com/naked-cakes-to-inspire-your-future-wedding-cake/"
 category: "wedding"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 25 Naked Cakes to Inspire Your Future Wedding Cake ...
@@ -179,16 +179,16 @@ What's your favorite naked wedding cake? Let me know in the comments!
 
 ## Related Posts
 
-- [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
-- [wedding tipping guide](https://wedding.allwomenstalk.com/wedding-hacks-you-should-see-before-you-get-hitched/)
-- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
-- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
-- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
-- [100 years of wedding dresses](https://wedding.allwomenstalk.com/years-of-engagement-rings-and-wedding-dresses/)
-- [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
-- [do it yourself wedding programs](https://wedding.allwomenstalk.com/programs-thatll-make-your-wedding-even-more-special/)
-- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
 - [caribbean themed cake](https://wedding.allwomenstalk.com/fabulous-wedding-cake-inspiration-typically-tropical/)
+- [brides with tattoos](https://beauty.allwomenstalk.com/these-wedding-tattoos-will-keep-the-love-alive/)
+- [100 years of wedding dresses](https://wedding.allwomenstalk.com/years-of-engagement-rings-and-wedding-dresses/)
+- [strange wedding cakes](https://wedding.allwomenstalk.com/unique-designs-thatll-give-you-wedding-cake-inspiration/)
+- [your man should be your biggest fan](https://wedding.allwomenstalk.com/cute-phrases-to-include-in-your-wedding-vows/)
+- [do it yourself wedding programs](https://wedding.allwomenstalk.com/programs-thatll-make-your-wedding-even-more-special/)
+- [half bottles of wine wedding favors](https://wedding.allwomenstalk.com/your-guests-will-actually-want-these-gorgeous-wedding-favors/)
+- [centerpieces winter wonderland](https://wedding.allwomenstalk.com/winter-wedding-centerpieces-thatll-cause-a-stir/)
+- [wedding tipping guide](https://wedding.allwomenstalk.com/wedding-hacks-you-should-see-before-you-get-hitched/)
+- [proposal with puppy](https://love.allwomenstalk.com/the-puppy-wedding-proposal-every-woman-would-love/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 

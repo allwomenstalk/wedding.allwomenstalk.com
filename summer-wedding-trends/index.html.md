@@ -3,7 +3,7 @@ title: "Sizzle and Sparkle at Summer Weddings..."
 description: "The Allure of Statement Fashion; Ruffles, Layers, and Flowing Fabrics; Beachy Elegance and Effortless Style; Let’s Start the Conversation; More ..."
 url: "https://wedding.allwomenstalk.com/summer-wedding-trends/"
 category: "wedding"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Sizzle and Sparkle at Summer Weddings...

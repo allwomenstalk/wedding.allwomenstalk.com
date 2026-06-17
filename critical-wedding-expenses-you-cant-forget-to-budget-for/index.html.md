@@ -3,7 +3,7 @@ title: "7 Critical Wedding Expenses You Can't Forget to Budget for ..."
 description: "Your Dress; Photography; The Cake; Décor; Venue; More ..."
 url: "https://wedding.allwomenstalk.com/critical-wedding-expenses-you-cant-forget-to-budget-for/"
 category: "wedding"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Critical Wedding Expenses You Can't Forget to Budget for ...

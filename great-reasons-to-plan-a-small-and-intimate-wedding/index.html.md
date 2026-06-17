@@ -3,7 +3,7 @@ title: "7 Great Reasons to Plan a Small and Intimate Wedding ..."
 description: "Less Sticker Shock; More Unique Venue Options; A Streamlined Guest List; Simplified Planning; A Smaller Wedding Party; More ..."
 url: "https://wedding.allwomenstalk.com/great-reasons-to-plan-a-small-and-intimate-wedding/"
 category: "wedding"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # 7 Great Reasons to Plan a Small and Intimate Wedding ...
@@ -44,14 +44,14 @@ Are there any other good reasons to plan a small and intimate wedding that youâ€
 
 - [hawaii wedding favors](https://wedding.allwomenstalk.com/fun-hawaiian-wedding-ideas-for-tying-the-knot-in-paradise/)
 - [family fights quotes](https://wedding.allwomenstalk.com/ways-to-avoid-family-fights-at-your-wedding/)
-- [alternative weddings](https://wedding.allwomenstalk.com/wedding-planning-tips-for-people-who-dont-like-weddings/)
+- [how to plan a quick wedding](https://wedding.allwomenstalk.com/great-advantages-of-planning-a-quick-wedding/)
 - [fall wedding trends](https://wedding.allwomenstalk.com/cute-fall-wedding-trends-youll-totally-love/)
 - [how to choose a wedding florist](https://wedding.allwomenstalk.com/top-tips-for-choosing-a-wedding-florist/)
-- [diy winter wedding ideas](https://wedding.allwomenstalk.com/charming-winter-wedding-ideas-for-the-wedding-of-your-dreams/)
-- [how to plan a quick wedding](https://wedding.allwomenstalk.com/great-advantages-of-planning-a-quick-wedding/)
 - [flashmob wedding proposals](https://wedding.allwomenstalk.com/amazing-marriage-proposals/)
 - [divorce party outfit](https://love.allwomenstalk.com/tips-to-throwing-a-great-divorce-party/)
 - [best sites for wedding registry](https://wedding.allwomenstalk.com/of-the-best-places-to-put-on-your-bridal-registry/)
+- [alternative weddings](https://wedding.allwomenstalk.com/wedding-planning-tips-for-people-who-dont-like-weddings/)
+- [diy winter wedding ideas](https://wedding.allwomenstalk.com/charming-winter-wedding-ideas-for-the-wedding-of-your-dreams/)
 - [7 Tips for Planning a Garden Wedding ...](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
 - [7 Reasons to Have a Destination Wedding ...](https://wedding.allwomenstalk.com/reasons-to-have-a-destination-wedding/)
 

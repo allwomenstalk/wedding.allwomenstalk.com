@@ -3,7 +3,7 @@ title: "Here's All the Reason You Need to Get Married in Brooklyn ..."
 description: "Oh Stella Studios' Bauer Wedding, One; Oh Stella Studios' Bauer Wedding, Two; Martina Micko's Graffiti Couple, One; Martina Micko's Graffiti Couple, Two; Martina Micko's Graffiti Couple, Three; More ..."
 url: "https://wedding.allwomenstalk.com/heres-all-the-reason-you-need-to-get-married-in-brooklyn/"
 category: "wedding"
-last_updated: "2026-06-13"
+last_updated: "2026-06-17"
 ---
 
 # Here's All the Reason You Need to Get Married in Brooklyn ...
