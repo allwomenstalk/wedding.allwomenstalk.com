@@ -3,7 +3,7 @@ title: "For Japan with Love: above and beyond the Wedding Industry ..."
 description: "How Did the Three of You Come Together for This Cause?; Do You Have Family or Friends That Live in Japan?; Why Was Shelter Box the Organization You Wanted to Give the Money to?; How Will You Keep This Cause Going and Remind Others That Japan Still Needs Help and Make Sure No One Forgets?; How Much Money Have You Raised?; More ..."
 url: "https://wedding.allwomenstalk.com/for-japan-with-love-above-and-beyond-the-wedding-industry/"
 category: "wedding"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # For Japan with Love: above and beyond the Wedding Industry ...
@@ -44,16 +44,16 @@ Jacin of [Lovely Little Details](https://www.hugedomains.com/domain_profile.cfm?
 
 ## Related Posts
 
+- [unusual wedding band](https://wedding.allwomenstalk.com/5-unique-wedding-band-sets/)
 - [bridal shower ideas themes](https://wedding.allwomenstalk.com/theme-ideas-for-a-bridal-shower/)
 - [cinco de mayo wedding anniversary](https://wedding.allwomenstalk.com/reasons-to-celebrate-a-cinco-de-mayo-wedding/)
-- [unusual wedding band](https://wedding.allwomenstalk.com/5-unique-wedding-band-sets/)
 - [5 Ways to Color Your Wedding Green with Envy ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-green-with-envy/)
-- [black and white cookie wedding favors](https://wedding.allwomenstalk.com/chic-ways-to-plan-a-black-white-wedding/)
+- [benefits of destination wedding](https://wedding.allwomenstalk.com/reasons-to-have-a-destination-wedding/)
+- [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
 - [unique wedding bouquets](https://wedding.allwomenstalk.com/6-unique-wedding-bouquets-that-will-last-forever/)
 - [spotlight invitations](https://wedding.allwomenstalk.com/vendor-spotlight-invitations-by-dawn/)
+- [black and white cookie wedding favors](https://wedding.allwomenstalk.com/chic-ways-to-plan-a-black-white-wedding/)
 - [winter wedding favors](https://wedding.allwomenstalk.com/elegant-winter-theme-wedding-favors/)
-- [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
-- [benefits of destination wedding](https://wedding.allwomenstalk.com/reasons-to-have-a-destination-wedding/)
 - [3 Amazing Offbeat Weddings ...](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 - [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 

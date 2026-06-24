@@ -3,7 +3,7 @@ title: "7 Unusual Wedding Gowns ..."
 description: "Mrs. Claus; Halloween Chic; Pretty in Pink; Black Beauty; Victorian Frills; More ..."
 url: "https://wedding.allwomenstalk.com/unusual-wedding-gowns/"
 category: "wedding"
-last_updated: "2026-06-17"
+last_updated: "2026-06-24"
 ---
 
 # 7 Unusual Wedding Gowns ...
@@ -56,16 +56,16 @@ Many new brides are opting to forgo the traditional wedding, from dress to locat
 
 ## Related Posts
 
-- [cute spring midi dresses](https://fashion.allwomenstalk.com/stylish-midi-dresses-for-spring/)
 - [wedding gowns with red](https://wedding.allwomenstalk.com/show-stopping-red-wedding-gowns/)
 - [alfred angelo flower girl dress](https://wedding.allwomenstalk.com/gorgeous-alfred-angelo-wedding-dresses/)
 - [vintage bride dresses](https://wedding.allwomenstalk.com/beautiful-vintage-wedding-dresses/)
+- [modern vintage bridesmaid dresses](https://wedding.allwomenstalk.com/beautiful-alfred-angelo-bridesmaid-dresses/)
+- [cute spring midi dresses](https://fashion.allwomenstalk.com/stylish-midi-dresses-for-spring/)
+- [whats a halter dress](https://fashion.allwomenstalk.com/fashionable-halter-dresses/)
 - [bridesmaid dresses winter wedding](https://wedding.allwomenstalk.com/lovely-winter-bridesmaids-dresses/)
+- [strapless ruffle wedding dress](https://wedding.allwomenstalk.com/playful-ruffle-wedding-dresses/)
 - [unique spring dresses](https://fashion.allwomenstalk.com/spring-dresses-we-love/)
 - [jennifers body prom dress](https://fashion.allwomenstalk.com/gorgeous-prom-dresses-for-any-body-shape/)
-- [strapless ruffle wedding dress](https://wedding.allwomenstalk.com/playful-ruffle-wedding-dresses/)
-- [modern vintage bridesmaid dresses](https://wedding.allwomenstalk.com/beautiful-alfred-angelo-bridesmaid-dresses/)
-- [whats a halter dress](https://fashion.allwomenstalk.com/fashionable-halter-dresses/)
 - [7 Wedding Dress Alternatives ...](https://wedding.allwomenstalk.com/7-wedding-dress-alternatives/)
 - [7 Wonderful Wedding Dresses from Etsy ...](https://wedding.allwomenstalk.com/7-wonderful-wedding-dresses-from-etsy/)
 
