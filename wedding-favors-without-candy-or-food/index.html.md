@@ -3,7 +3,7 @@ title: "29 Wedding Favors without Candy or Food ..."
 description: "Personalized Shot Glasses; Flower Seeds; Hangover Kit; Succulent; Matches; More ..."
 url: "https://wedding.allwomenstalk.com/wedding-favors-without-candy-or-food/"
 category: "wedding"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 29 Wedding Favors without Candy or Food ...
@@ -244,16 +244,16 @@ Are you going to be having non-edible favors or will you be going the candy rout
 
 ## Related Posts
 
-- [song request on wedding rsvp](https://wedding.allwomenstalk.com/fun-ideas-for-your-wedding-your-guests-will-love/)
 - [best man gift to groom](https://wedding.allwomenstalk.com/gifts-your-groom-would-love-to-have/)
 - [how to decline wedding invite](https://wedding.allwomenstalk.com/tips-on-how-to-say-no-to-unwanted-help-during-the-wedding-planning/)
-- [a wedding toast](https://wedding.allwomenstalk.com/short-and-sweet-quotes-to-use-for-a-wedding-toast/)
-- [southern flair](https://wedding.allwomenstalk.com/ways-to-give-your-wedding-some-sassy-southern-flair/)
-- [wedding dress t](https://wedding.allwomenstalk.com/things-to-do-when-your-wedding-dress-doesnt-fit-suddenly/)
 - [that's what friends are for bridesmaids](https://wedding.allwomenstalk.com/ways-to-stay-friends-with-your-bridesmaids-after-the-wedding/)
 - [paris color riche stylo eye violet amour](https://wedding.allwomenstalk.com/reasons-to-choose-black-and-white-wedding-photos/)
-- [cute ways to ask someone to be your maid of honor](https://wedding.allwomenstalk.com/fun-and-creative-ways-to-ask-a-friend-to-be-your-bridesmaid/)
+- [southern flair](https://wedding.allwomenstalk.com/ways-to-give-your-wedding-some-sassy-southern-flair/)
+- [a wedding toast](https://wedding.allwomenstalk.com/short-and-sweet-quotes-to-use-for-a-wedding-toast/)
+- [song request on wedding rsvp](https://wedding.allwomenstalk.com/fun-ideas-for-your-wedding-your-guests-will-love/)
+- [wedding dress t](https://wedding.allwomenstalk.com/things-to-do-when-your-wedding-dress-doesnt-fit-suddenly/)
 - [advice to give to newlyweds](https://love.allwomenstalk.com/valuable-pieces-of-advice-for-newlyweds/)
+- [cute ways to ask someone to be your maid of honor](https://wedding.allwomenstalk.com/fun-and-creative-ways-to-ask-a-friend-to-be-your-bridesmaid/)
 - [6 Sweet Ideas for a Candy Themed Bridal Shower ...](https://wedding.allwomenstalk.com/sweet-ideas-for-a-candy-themed-bridal-shower/)
 - [8 Elegant Winter Theme Wedding Favors ...](https://wedding.allwomenstalk.com/elegant-winter-theme-wedding-favors/)
 

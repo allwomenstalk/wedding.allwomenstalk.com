@@ -3,7 +3,7 @@ title: "The Charity Wedding: above and beyond the Wedding Industry ..."
 description: "Why Did You Decide to do This for Your Wedding?...; What Are the Charities That You Donated to?; What Vendors Helped Donate or Give Cheaper Services?; Have You Heard from Other Brides and Grooms Who Were Inspired by You to do the Same?; How Much Did You End up Donating?; More ..."
 url: "https://wedding.allwomenstalk.com/the-charity-wedding-above-and-beyond-the-wedding-industry/"
 category: "wedding"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # The Charity Wedding: above and beyond the Wedding Industry ...
@@ -50,16 +50,16 @@ Congratulations to Alicia and Kyle...thank you for an inspiring story and weddin
 
 ## Related Posts
 
-- [bachelorette party wild](https://wedding.allwomenstalk.com/7-no-nos-at-a-bachelorette-party/)
 - [girls loving dogs](https://wedding.allwomenstalk.com/1-guy-1-girl-1-dog-a-fun-loving-engagement-shoot-in-florida/)
 - [pink brides](https://wedding.allwomenstalk.com/ways-to-tickle-your-wedding-pink/)
-- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
 - [honeymoon of a lifetime](https://wedding.allwomenstalk.com/honeymoon-of-a-lifetime-guest-blogger-terri-try-anything-once/)
-- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
-- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
 - [loreal paris color stylo silver](https://wedding.allwomenstalk.com/wedding-centerpiece-ideas-that-look-amazing/)
-- [whimsical fall](https://wedding.allwomenstalk.com/great-ideas-for-a-whimsical-fall-wedding/)
+- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
+- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
 - [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
+- [whimsical fall](https://wedding.allwomenstalk.com/great-ideas-for-a-whimsical-fall-wedding/)
+- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
+- [bachelorette party wild](https://wedding.allwomenstalk.com/7-no-nos-at-a-bachelorette-party/)
 - [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 - [Jars of Love: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
 

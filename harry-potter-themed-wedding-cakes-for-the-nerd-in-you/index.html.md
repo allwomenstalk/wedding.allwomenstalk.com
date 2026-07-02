@@ -3,7 +3,7 @@ title: "Harry Potter Themed Wedding Cakes for the Nerd in You ..."
 description: "Tier by Tier; Alexa & Kris; Doe & Stag; That Topper; The Houses; More ..."
 url: "https://wedding.allwomenstalk.com/harry-potter-themed-wedding-cakes-for-the-nerd-in-you/"
 category: "wedding"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Harry Potter Themed Wedding Cakes for the Nerd in You ...
@@ -116,16 +116,16 @@ Which of these wedding cakes will get you down the aisle with your fellow Potter
 
 ## Related Posts
 
-- [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
-- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
+- [wedding arrangements meaning](https://wedding.allwomenstalk.com/how-to-choose-wedding-flowers-based-on-their-meaning/)
 - [how to pick a wedding photographer](https://wedding.allwomenstalk.com/how-to-choose-a-wedding-photographer/)
+- [what do couples want in a wedding venue](https://wedding.allwomenstalk.com/how-to-choose-the-perfect-wedding-venue/)
+- [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
+- [wedding train movie](https://wedding.allwomenstalk.com/romantic-girls-will-swoon-with-envy-over-the-most-expensive-movie-weddings/)
+- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
 - [soft glam wedding guest makeup](https://wedding.allwomenstalk.com/wedding-makeup-inspos-to-be-the-prettiest-bride-on-your-big-day/)
+- [what not to wear to a wedding as a guest](https://wedding.allwomenstalk.com/etiquette-what-not-to-wear-to-a-wedding/)
 - [origami wedding gift](https://wedding.allwomenstalk.com/creative-ways-to-make-your-wedding-memorable/)
 - [celebrating engagement](https://wedding.allwomenstalk.com/inspiring-ways-to-celebrate-getting-engaged-to-your-sweetheart/)
-- [quotes for invitation for farewell party](https://wedding.allwomenstalk.com/quotes-for-wedding-invitations/)
-- [wedding train movie](https://wedding.allwomenstalk.com/romantic-girls-will-swoon-with-envy-over-the-most-expensive-movie-weddings/)
-- [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
-- [wedding arrangements meaning](https://wedding.allwomenstalk.com/how-to-choose-wedding-flowers-based-on-their-meaning/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 
