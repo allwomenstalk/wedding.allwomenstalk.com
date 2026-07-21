@@ -3,7 +3,7 @@ title: "The Biggest Things You'll Regret Doing on Your Wedding Day ..."
 description: "Inviting People You Don't Know; A Weird Hairstyle; Getting the Right Pictures; Paper Invitations and RSVPs; Spending the Money on an Expensive Hotel Room; More ..."
 url: "https://wedding.allwomenstalk.com/things-youll-regret-doing-on-your-wedding-day/"
 category: "wedding"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # The Biggest Things You'll Regret Doing on Your Wedding Day ...
@@ -43,15 +43,15 @@ What was your biggest wedding day regret?
 ## Related Posts
 
 - [best wedding tips ever](https://wedding.allwomenstalk.com/best-ever-wedding-planning-tips/)
-- [yourstrulymedia](https://wedding.allwomenstalk.com/yours-truly-media-on-creating-a-safe-environment-at-your-wedding-amidst-covid-19/)
-- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
-- [wedding invitation design layout](https://wedding.allwomenstalk.com/wedding-invitation-design-and-layout-tips/)
-- [wedding dress pockets](https://wedding.allwomenstalk.com/worthwhile-things-to-keep-in-your-pocketed-wedding-dress/)
 - [budget dream weddings](https://wedding.allwomenstalk.com/ways-to-fund-the-wedding-of-your-dreams/)
-- [efficient event coordination](https://lifestyle.allwomenstalk.com/amazing-cost-effective-event-planning-tips/)
-- [69 million wedding](https://wedding.allwomenstalk.com/most-expensive-weddings-ever/)
+- [wedding invitation design layout](https://wedding.allwomenstalk.com/wedding-invitation-design-and-layout-tips/)
+- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
 - [wedding invitation trends](https://wedding.allwomenstalk.com/top-wedding-invitation-trends/)
+- [wedding dress pockets](https://wedding.allwomenstalk.com/worthwhile-things-to-keep-in-your-pocketed-wedding-dress/)
 - [tips for choosing the perfect designer dress for a...](https://fashion.allwomenstalk.com/top-tips-for-choosing-the-perfect-wedding-guest-outfit/)
+- [69 million wedding](https://wedding.allwomenstalk.com/most-expensive-weddings-ever/)
+- [yourstrulymedia](https://wedding.allwomenstalk.com/yours-truly-media-on-creating-a-safe-environment-at-your-wedding-amidst-covid-19/)
+- [efficient event coordination](https://lifestyle.allwomenstalk.com/amazing-cost-effective-event-planning-tips/)
 - [8 Things People Hate about Weddings ...](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 

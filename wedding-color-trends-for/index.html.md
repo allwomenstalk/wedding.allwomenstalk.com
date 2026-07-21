@@ -3,7 +3,7 @@ title: "8 Wedding Color Trends for 2012 ..."
 description: "Tangerine Tango Wedding Color Trend...; Margarita Green Wedding Color Trend...; Sodalite Blue Wedding Color Trends...; Sweet Lilac Wedding Color Trend...; Driftwood Wedding Color Trends...; More ..."
 url: "https://wedding.allwomenstalk.com/wedding-color-trends-for/"
 category: "wedding"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 8 Wedding Color Trends for 2012 ...
@@ -80,16 +80,16 @@ Although you may be looking to see which **wedding color trends** fit each seaso
 
 ## Related Posts
 
+- [maroon orange combination](https://fashion.allwomenstalk.com/most-fashionable-color-combinations-for-fall/)
+- [mainstream fashions](https://fashion.allwomenstalk.com/alternative-fashions-that-are-now-mainstream/)
+- [2012 hair trends](https://hair.allwomenstalk.com/radical-trendy-hair-style-changes-to-consider-in/)
+- [celebrity hair colors](https://celebs.allwomenstalk.com/most-popular-celebrity-hair-colors-of/)
+- [fall clothing trends women](https://fashion.allwomenstalk.com/fall-fashion-trends-for-short-women/)
+- [old trends that should come back](https://fashion.allwomenstalk.com/good-old-trends-that-have-made-their-comeback/)
+- [fashion trends of 2013](https://fashion.allwomenstalk.com/top-fashion-trends-for-spring/)
+- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/wardrobe-must-haves/)
 - [fall floral prints](https://fashion.allwomenstalk.com/trendy-floral-print-pieces-for-fall/)
 - [trending fashion for teenagers](https://fashion.allwomenstalk.com/fall-fashion-trends-for-teenagers/)
-- [mainstream fashions](https://fashion.allwomenstalk.com/alternative-fashions-that-are-now-mainstream/)
-- [celebrity hair colors](https://celebs.allwomenstalk.com/most-popular-celebrity-hair-colors-of/)
-- [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/wardrobe-must-haves/)
-- [2012 hair trends](https://hair.allwomenstalk.com/radical-trendy-hair-style-changes-to-consider-in/)
-- [maroon orange combination](https://fashion.allwomenstalk.com/most-fashionable-color-combinations-for-fall/)
-- [old trends that should come back](https://fashion.allwomenstalk.com/good-old-trends-that-have-made-their-comeback/)
-- [fall clothing trends women](https://fashion.allwomenstalk.com/fall-fashion-trends-for-short-women/)
-- [fashion trends of 2013](https://fashion.allwomenstalk.com/top-fashion-trends-for-spring/)
 - [3 Hot Color Palette Trends for Your 2011 Wedding ....](https://wedding.allwomenstalk.com/hot-color-palette-trends-for-your-wedding/)
 - [3 Wedding Inspiration Boards to Celebrate the Colo...](https://wedding.allwomenstalk.com/wedding-inspiration-boards-to-celebrate-the-color-of/)
 

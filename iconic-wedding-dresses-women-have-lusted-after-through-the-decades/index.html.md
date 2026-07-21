@@ -3,7 +3,7 @@ title: "Iconic Wedding Dresses Women Have Lusted after 🤤 Throughout the Years
 description: "Kate Middleton; Grace Kelly; Gwen Stefani; Kim Kardashian; Victoria Beckham; More ..."
 url: "https://wedding.allwomenstalk.com/iconic-wedding-dresses-women-have-lusted-after-through-the-decades/"
 category: "wedding"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # Iconic Wedding Dresses Women Have Lusted after 🤤 Throughout the Years ...
@@ -126,16 +126,16 @@ Let's end with probably the most iconic wedding dress of all. Lady Diana Spencer
 
 ## Related Posts
 
+- [plus size halloween costumes for couples](https://lifestyle.allwomenstalk.com/flattering-halloween-costumes-for-plus-size-women/)
 - [maxi for girls](https://fashion.allwomenstalk.com/maxi-dress-styling-tips-for-short-women/)
 - [jasmine disney wedding dress](https://wedding.allwomenstalk.com/the-top-disney-princess-inspired-wedding-dresses-for-spring-2-0-1-7/)
+- [red dress model](https://fashion.allwomenstalk.com/how-to-wear-a-red-dress-like-a-model/)
 - [dress shape guide](https://wedding.allwomenstalk.com/a-complete-guide-for-brides-to-be-to-pick-the-right-dress-for-their-shape/)
-- [costumes around the world images](https://fashion.allwomenstalk.com/traditional-costumes-around-the-world/)
 - [two pieces gown](https://fashion.allwomenstalk.com/stunning-two-piece-prom-dresses-you-must-see-now/)
 - [swoon worthy bridal](https://wedding.allwomenstalk.com/swoon-worthy-indian-wedding-dresses-you-need-to-see-to-believe/)
 - [sharon stone turtleneck](https://fashion.allwomenstalk.com/dresses-throughout-history-that-have-caused-timeless-scandals/)
+- [costumes around the world images](https://fashion.allwomenstalk.com/traditional-costumes-around-the-world/)
 - [maykool dresses](https://fashion.allwomenstalk.com/sexy-dresses-for-valentines-day/)
-- [plus size halloween costumes for couples](https://lifestyle.allwomenstalk.com/flattering-halloween-costumes-for-plus-size-women/)
-- [red dress model](https://fashion.allwomenstalk.com/how-to-wear-a-red-dress-like-a-model/)
 - [5 Lovely Bridal Gowns from BHLDN ...](https://wedding.allwomenstalk.com/5-lovely-bridal-gowns-from-bhldn/)
 - [Ten Most Fab Vera Wang Wedding Gowns ...](https://allwomenstalk.com/most-fabulous-vera-wang-wedding-gowns-bridal-collection/)
 

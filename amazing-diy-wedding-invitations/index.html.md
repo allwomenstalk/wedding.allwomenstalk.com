@@ -3,7 +3,7 @@ title: "7 Amazing DIY Wedding Invitations ..."
 description: "Fingerprint Hearts; Personalized Picture Envelope; Photo Booth Tag Invitations; Invitation Ornament; Bride and Groom Invitation; More ..."
 url: "https://wedding.allwomenstalk.com/amazing-diy-wedding-invitations/"
 category: "wedding"
-last_updated: "2026-07-02"
+last_updated: "2026-07-21"
 ---
 
 # 7 Amazing DIY Wedding Invitations ...
@@ -57,15 +57,15 @@ DIY wedding invites are the perfect way to make a custom and unique introduction
 ## Related Posts
 
 - [journal structure ideas](https://diy.allwomenstalk.com/ideas-for-diy-journals-diaries-smash-books-and-all-the-extras/)
+- [flamingo origami step by step](https://diy.allwomenstalk.com/origami-tutorials-to-pass-the-time-or-start-a-new-hobby/)
 - [diy quilts](https://diy.allwomenstalk.com/awesome-quilts-to-get-you-inspired-to-do-some-sewing/)
+- [home dcor](https://diy.allwomenstalk.com/diy-videos-about-home-decor-on-a-budget/)
 - [monkey crochet pattern](https://diy.allwomenstalk.com/sock-monkey-projects-to-raise-a-smile-or-two/)
-- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
-- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
 - [cloud backdrop diy](https://diy.allwomenstalk.com/diy-cloud-projects-for-rainy-days/)
 - [photo backdrops diy](https://diy.allwomenstalk.com/dazzling-diy-photo-back-drops-for-your-next-party-or-photoshoot/)
-- [home dcor](https://diy.allwomenstalk.com/diy-videos-about-home-decor-on-a-budget/)
 - [body jewelry holder](https://jewelry.allwomenstalk.com/diy-jewelry-organizers-to-get-busy-making/)
-- [flamingo origami step by step](https://diy.allwomenstalk.com/origami-tutorials-to-pass-the-time-or-start-a-new-hobby/)
+- [uses for ice cube trays](https://food.allwomenstalk.com/brilliant-uses-for-an-ice-cube-tray/)
+- [feather crafts ideas](https://diy.allwomenstalk.com/fantastic-feather-inspired-crafts-for-your-next-crafting-session/)
 - [5 Etsy Wedding Finds for the Non-DIY Bride ...](https://wedding.allwomenstalk.com/5-etsy-wedding-finds-for-the-non-diy-bride/)
 - [4 DIY Wedding Card Ideas ...](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)
 
