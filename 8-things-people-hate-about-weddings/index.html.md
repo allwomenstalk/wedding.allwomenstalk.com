@@ -3,7 +3,7 @@ title: "8 Common Things People Secretly Dislike About Weddings"
 description: "The Huge Crowd They do Not Know; How Much They Cost; Bridesmaid Dresses; Passing out; The Chicken Dance; More ..."
 url: "https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/"
 category: "wedding"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 8 Common Things People Secretly Dislike About Weddings
@@ -60,16 +60,16 @@ So, what do you not like about weddings?
 
 ## Related Posts
 
-- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
-- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
-- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
 - [blackening of the bride](https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/)
 - [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
-- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
 - [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
-- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
+- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
 - [6 Ways to Color a Star Spangled Wedding ...](https://wedding.allwomenstalk.com/ways-to-color-a-star-spangled-wedding/)
+- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
+- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 - [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
+- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
+- [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
 - [Top 10 Things Children May Not like ...](https://parenting.allwomenstalk.com/top-10-things-children-may-not-like/)
 - [8 Things Not to do at a Wedding ...](https://fashion.allwomenstalk.com/8-things-not-to-do-at-a-wedding/)
 

@@ -3,7 +3,7 @@ title: "8 Weddings and One Bride: a Tribute to Elizabeth Taylor ..."
 description: "Elizabeth & Larry...; Liz & John...; Elizabeth & Eddie...; Liz & Michael Todd...; Elizabeth & Michael Wilding...; More ..."
 url: "https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/"
 category: "wedding"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 8 Weddings and One Bride: a Tribute to Elizabeth Taylor ...
@@ -71,15 +71,15 @@ Top Photo: [Glamour.com](https://www.glamour.com/story/the-many-wedding-dresses-
 
 ## Related Posts
 
+- [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
 - [wedding catastrophe](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
 - [colonial baptist church wintersville ohio](https://wedding.allwomenstalk.com/real-wedding-military-love-in-pittsburgh/)
-- [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
-- [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
 - [pittsburgh steelers cake](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 - [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
+- [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
 - [unique centerpieces](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 - [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
-- [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
+- [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 - [4 Amazing Wedding Shots You Need to See!](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
 - [5 Celebrity Weddings of Spring 2011 ...](https://wedding.allwomenstalk.com/celebrity-weddings-of-spring/)
 - [7 Celebrity Weddings to Watch for in 2011 ...](https://celebs.allwomenstalk.com/celebrity-weddings-to-watch-for-in/)
