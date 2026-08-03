@@ -3,7 +3,7 @@ title: "5 Celebrity Couples Who Recently Said Yes!"
 description: "The Sweet Girl Next Door...; A Beautiful Swan...; A Smooth Singer...; The Celebrity Cowboy...; First a Divorce, Now an Engagement...; More ..."
 url: "https://wedding.allwomenstalk.com/5-celebrity-couples-who-recently-said-yes/"
 category: "wedding"
-last_updated: "2026-07-31"
+last_updated: "2026-08-03"
 ---
 
 # 5 Celebrity Couples Who Recently Said Yes!
@@ -54,16 +54,16 @@ Top Photo: [Lepaparazzi.blogspot.com](http://lepaparazzi.blogspot.com/)
 
 ## Related Posts
 
-- [hottest heroes](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
-- [celebrity marriage proposals](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
-- [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
-- [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
 - [humphrey bogart mustache](https://movies.allwomenstalk.com/the-top-leading-men-of-all-time/)
 - [you are mine actors](https://movies.allwomenstalk.com/7-iconic-movies-roles-that-were-almost-played-by-other-actors/)
-- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
-- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
+- [overated actors](https://movies.allwomenstalk.com/7-actors-who-are-overrated/)
+- [Top 7 Actors That Should Get More Work ...](https://movies.allwomenstalk.com/top-7-actors-that-should-get-more-work/)
+- [celebrity marriage proposals](https://wedding.allwomenstalk.com/8-most-adorable-celebrity-proposal-stories/)
+- [hottest heroes](https://movies.allwomenstalk.com/7-hottest-on-screen-heroes-of-all-times/)
 - [shaya charvet football](https://parenting.allwomenstalk.com/things-celebrity-parents-tweet-about/)
 - [roast of david hasselhoff](https://celebs.allwomenstalk.com/david-hasselhoff-roast/)
+- [list of actors playing james bond](https://movies.allwomenstalk.com/7-best-james-bond-actors/)
+- [british movie star](https://movies.allwomenstalk.com/amazing-british-movie-stars/)
 - [25 Most Expensive Celebrity Weddings of All Time ....](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
 - [Most Fashionable Celebrity Parents](https://allwomenstalk.com/most-fashionable-celebrity-parents/)
 
