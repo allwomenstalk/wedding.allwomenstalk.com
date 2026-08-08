@@ -3,7 +3,7 @@ title: "5 Ways to Plan an Eco-Friendly Wedding ..."
 description: "Going Green Gown...; Eco-Friendly Favors...; Going Green Registry...; Eco-Friendly Honeymoon...; Bridesmaid Gift...; More ..."
 url: "https://wedding.allwomenstalk.com/ways-to-plan-an-eco-friendly-wedding/"
 category: "wedding"
-last_updated: "2026-08-03"
+last_updated: "2026-08-08"
 ---
 
 # 5 Ways to Plan an Eco\-Friendly Wedding ...
@@ -46,15 +46,15 @@ You can do more than just make your wedding day eco-friendly, now you can go on 
 
 ## Related Posts
 
-- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
-- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
-- [loreal stylo enchanted](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 - [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
-- [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
 - [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
 - [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
+- [loreal stylo enchanted](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 - [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
+- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
+- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
+- [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
 - [7 Reasons to Hire a Wedding Planner ...](https://wedding.allwomenstalk.com/7-reasons-to-hire-a-wedding-planner/)
 - [5 Ways to Find Ideas outside the Wedding Box ...](https://wedding.allwomenstalk.com/5-ways-to-find-ideas-outside-the-wedding-box/)
 - [5 Creative Ways to save the Date ...](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
