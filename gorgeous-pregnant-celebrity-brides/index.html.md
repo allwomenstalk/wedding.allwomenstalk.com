@@ -3,7 +3,7 @@ title: "7 Gorgeous Pregnant Celebrity Brides ..."
 description: "Drew Barrymore...; Bethenny Frankel...; Julianna Margulies...; Alicia Keys...; Lily Allen...; More ..."
 url: "https://wedding.allwomenstalk.com/gorgeous-pregnant-celebrity-brides/"
 category: "wedding"
-last_updated: "2026-08-08"
+last_updated: "2026-08-11"
 ---
 
 # 7 Gorgeous Pregnant Celebrity Brides ...
@@ -64,16 +64,16 @@ Whether you embrace your bump in a tight, belly hugging gown or you decide to hi
 
 ## Related Posts
 
-- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
-- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
-- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
-- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
-- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
-- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
-- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
 - [celebrities in trouble with the law](https://celebs.allwomenstalk.com/celebrities-who-have-been-in-trouble-with-the-law/)
-- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
+- [dilf celebs](https://celebs.allwomenstalk.com/gorgeous-celebrities-both-men-and-women-drool-over/)
+- [rihanna no make up](https://celebs.allwomenstalk.com/no-makeup-celebrities-that-look-great/)
 - [is natalie portman smart](https://celebs.allwomenstalk.com/super-smart-celebrities/)
+- [best front men](https://celebs.allwomenstalk.com/hottest-band-front-men/)
+- [hot hollywood news](https://celebs.allwomenstalk.com/hot-hollywood-stars-with-troubled-pasts/)
+- [edward cullen sixpack](https://celebs.allwomenstalk.com/top-hot-actors-who-should-play-christian-grey/)
+- [stephenie meyer twilight cameo](https://movies.allwomenstalk.com/writers-who-made-a-cameo-appearance/)
+- [celebrity girl crush list](https://celebs.allwomenstalk.com/fabulous-celebrities-its-okay-to-have-a-girl-crush-on/)
+- [celebs with rosacea](https://skincare.allwomenstalk.com/hot-celebs-with-skincare-issues/)
 - [5 Real Brides That Will Catch Your Eye ...](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 - [5 Bridal Looks Right from the Golden Globes ...](https://wedding.allwomenstalk.com/5-bridal-looks-right-from-the-golden-globes/)
 
