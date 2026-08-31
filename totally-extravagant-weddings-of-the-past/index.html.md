@@ -3,7 +3,7 @@ title: "7 Totally Extravagant Weddings of the past ..."
 description: "Atilla the Hun and Idico (453 CE); Margaret of York and Charles the Bold (1468); Prince Rainier of Monaco and Grace Kelly (1956); Muhammad and Salama of Dubai (1981); The Mittal Affair (2004); More ..."
 url: "https://wedding.allwomenstalk.com/totally-extravagant-weddings-of-the-past/"
 category: "wedding"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 Totally Extravagant Weddings of the past ...
@@ -51,15 +51,15 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/2050545892540785
 ## Related Posts
 
 - [glow in the dark wedding dresses](https://wedding.allwomenstalk.com/ways-to-plan-a-neon-wedding/)
-- [selling bridal gowns](https://wedding.allwomenstalk.com/best-sites-to-sell-your-used-wedding-dress/)
+- [pros and cons of a courthouse wedding](https://wedding.allwomenstalk.com/reasons-to-get-married-at-the-courthouse/)
+- [wedding titles ideas](https://wedding.allwomenstalk.com/unconventional-wedding-ideas/)
+- [diy wedding present](https://wedding.allwomenstalk.com/diy-gifts-for-a-bride-and-groom/)
 - [unique wedding venue](https://wedding.allwomenstalk.com/unusual-locations-for-a-wedding/)
 - [how was your wedding](https://wedding.allwomenstalk.com/truths-to-know-about-your-wedding-day/)
-- [diy wedding present](https://wedding.allwomenstalk.com/diy-gifts-for-a-bride-and-groom/)
-- [pros and cons of a courthouse wedding](https://wedding.allwomenstalk.com/reasons-to-get-married-at-the-courthouse/)
-- [who do you invite to a bachelorette party](https://wedding.allwomenstalk.com/tips-for-planning-the-perfect-bachelorette-party/)
-- [mr adorable](https://wedding.allwomenstalk.com/adorable-mr-mrs-wedding-items-to-buy/)
+- [selling bridal gowns](https://wedding.allwomenstalk.com/best-sites-to-sell-your-used-wedding-dress/)
 - [rustic invitations](https://wedding.allwomenstalk.com/unique-rustic-wedding-invitations/)
-- [wedding titles ideas](https://wedding.allwomenstalk.com/unconventional-wedding-ideas/)
+- [mr adorable](https://wedding.allwomenstalk.com/adorable-mr-mrs-wedding-items-to-buy/)
+- [who do you invite to a bachelorette party](https://wedding.allwomenstalk.com/tips-for-planning-the-perfect-bachelorette-party/)
 - [7 Wackiest Proposals Ever ...](https://wedding.allwomenstalk.com/7-wackiest-proposals-ever/)
 - [7 Theme Wedding Ideas That Rock ...](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
 
