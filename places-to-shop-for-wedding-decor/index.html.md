@@ -3,7 +3,7 @@ title: "7 Places to Shop for Wedding Décor ..."
 description: "Save-on-crafts.com; Dollar Tree; Hobby Lobby; Oriental Trader; Etsy.com; More ..."
 url: "https://wedding.allwomenstalk.com/places-to-shop-for-wedding-decor/"
 category: "wedding"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 Places to Shop for Wedding Décor ...
@@ -42,16 +42,16 @@ Weddings are exciting to plan and fun to decorate, especially if you have a head
 
 ## Related Posts
 
-- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
-- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
 - [work wedding shower games](https://wedding.allwomenstalk.com/fun-bridal-shower-games/)
-- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
-- [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
-- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
+- [fun wedding photo ideas](https://wedding.allwomenstalk.com/top-most-romantic-wedding-photo-ideas/)
 - [8 year anniversary gift traditional](https://wedding.allwomenstalk.com/first-wedding-anniversary-gift-ideas/)
-- [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
 - [cat wedding cake toppers](https://wedding.allwomenstalk.com/same-sex-wedding-cake-toppers/)
+- [weird wedding ideas](https://wedding.allwomenstalk.com/crazy-wedding-ideas-youll-never-forget/)
+- [biggest money wasters](https://wedding.allwomenstalk.com/biggest-wedding-money-wasters/)
+- [what is cold feet before marriage](https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/)
+- [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
 - [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
+- [bridal shower toilet paper game](https://wedding.allwomenstalk.com/bridal-shower-games-your-guests-will-love/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 
