@@ -3,7 +3,7 @@ title: "7 Reasons You've Got Cold Feet before Your Wedding ..."
 description: "The Right Person…; What if It’s a Disaster…; Hidden Motives…; Did I Pick the Right Dress…; Am I Ready…; More ..."
 url: "https://wedding.allwomenstalk.com/reasons-youve-got-cold-feet-before-your-wedding/"
 category: "wedding"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 7 Reasons You've Got Cold Feet before Your Wedding ...
@@ -44,13 +44,13 @@ Remember that it can be very easy to confuse excitement and anxiety with wedding
 
 - [good ideas for wedding registry](https://wedding.allwomenstalk.com/unique-wedding-registry-ideas/)
 - [metallic wedding theme](https://wedding.allwomenstalk.com/gorgeous-ideas-for-metallic-wedding-theme/)
+- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
 - [what to prepare for a catholic wedding](https://wedding.allwomenstalk.com/tips-on-how-to-plan-a-catholic-wedding/)
+- [wedding escort card ideas](https://wedding.allwomenstalk.com/unique-wedding-escort-card-ideas/)
 - [best gift for friend's wedding female](https://wedding.allwomenstalk.com/wedding-gifts-for-your-best-friends/)
 - [memorial table ideas](https://wedding.allwomenstalk.com/heartfelt-wedding-memorial-ideas/)
-- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
 - [all white wedding ideas](https://wedding.allwomenstalk.com/wedding-themes-that-everyone-will-love/)
-- [wedding escort card ideas](https://wedding.allwomenstalk.com/unique-wedding-escort-card-ideas/)
-- [retro style wedding](https://wedding.allwomenstalk.com/ideas-for-a-retro-themed-wedding/)
+- [marriage problems quotes](https://wedding.allwomenstalk.com/of-the-best-quotes-about-marriage/)
 - [castel germania](https://wedding.allwomenstalk.com/wonderful-castles-for-romantic-weddings/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
 - [7 Reasons to Not Get Married ...](https://love.allwomenstalk.com/reasons-to-not-get-married/)

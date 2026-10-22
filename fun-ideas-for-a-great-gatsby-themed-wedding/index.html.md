@@ -3,7 +3,7 @@ title: "8 Fun Ideas for a Great Gatsby Themed Wedding ..."
 description: "Great Gatsby save the Date...; Great Gatsby Decor...; Great Gatsby Bridal Style...; Great Gatsby Bridesmaids...; Great Gatsby Wedding Cake...; More ..."
 url: "https://wedding.allwomenstalk.com/fun-ideas-for-a-great-gatsby-themed-wedding/"
 category: "wedding"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # 8 Fun Ideas for a Great Gatsby Themed Wedding ...
@@ -58,16 +58,16 @@ Are you planning a Great Gatsby wedding or do you know someone who is? What do y
 
 ## Related Posts
 
-- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
-- [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
-- [literary themed wedding](https://wedding.allwomenstalk.com/absolutely-splendid-ideas-for-a-literary-themed-wedding/)
-- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
-- [rustic wedding ideas bridesmaids](https://wedding.allwomenstalk.com/unique-ways-to-rock-the-rustic-wedding-theme/)
-- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
-- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
-- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
-- [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
 - [headdress idea](https://wedding.allwomenstalk.com/lovely-wedding-headpiece-ideas/)
+- [tropical ombre cake](https://wedding.allwomenstalk.com/amazing-ombre-wedding-cakes/)
+- [bridal shower color scheme](https://lifestyle.allwomenstalk.com/fantastic-bridal-shower-themes-that-no-one-will-forget/)
+- [summer wedding theme ideas](https://wedding.allwomenstalk.com/summer-wedding-themes/)
+- [throwing a bachelorette party](https://wedding.allwomenstalk.com/tips-on-throwing-a-bachelorette-party/)
+- [wedding must haves](https://wedding.allwomenstalk.com/must-haves-to-help-plan-your-hunger-games-wedding/)
+- [bar pros](https://wedding.allwomenstalk.com/pros-and-cons-of-having-an-open-bar-at-your-reception/)
+- [rustic wedding ideas bridesmaids](https://wedding.allwomenstalk.com/unique-ways-to-rock-the-rustic-wedding-theme/)
+- [how to deal with bridezilla](https://wedding.allwomenstalk.com/ways-to-avoid-being-a-bridezilla/)
+- [literary themed wedding](https://wedding.allwomenstalk.com/absolutely-splendid-ideas-for-a-literary-themed-wedding/)
 - [8 Ideas for Fun Wedding Photography ...](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 

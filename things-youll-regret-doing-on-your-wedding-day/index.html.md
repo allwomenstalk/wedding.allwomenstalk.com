@@ -3,7 +3,7 @@ title: "The Biggest Things You'll Regret Doing on Your Wedding Day ..."
 description: "Inviting People You Don't Know; A Weird Hairstyle; Getting the Right Pictures; Paper Invitations and RSVPs; Spending the Money on an Expensive Hotel Room; More ..."
 url: "https://wedding.allwomenstalk.com/things-youll-regret-doing-on-your-wedding-day/"
 category: "wedding"
-last_updated: "2026-09-02"
+last_updated: "2026-10-22"
 ---
 
 # The Biggest Things You'll Regret Doing on Your Wedding Day ...
@@ -42,15 +42,15 @@ What was your biggest wedding day regret?
 
 ## Related Posts
 
-- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
-- [wedding dress pockets](https://wedding.allwomenstalk.com/worthwhile-things-to-keep-in-your-pocketed-wedding-dress/)
-- [efficient event coordination](https://lifestyle.allwomenstalk.com/amazing-cost-effective-event-planning-tips/)
-- [tips for choosing the perfect designer dress for a...](https://fashion.allwomenstalk.com/top-tips-for-choosing-the-perfect-wedding-guest-outfit/)
-- [best wedding tips ever](https://wedding.allwomenstalk.com/best-ever-wedding-planning-tips/)
-- [wedding invitation trends](https://wedding.allwomenstalk.com/top-wedding-invitation-trends/)
-- [yourstrulymedia](https://wedding.allwomenstalk.com/yours-truly-media-on-creating-a-safe-environment-at-your-wedding-amidst-covid-19/)
 - [budget dream weddings](https://wedding.allwomenstalk.com/ways-to-fund-the-wedding-of-your-dreams/)
 - [69 million wedding](https://wedding.allwomenstalk.com/most-expensive-weddings-ever/)
+- [wedding dress pockets](https://wedding.allwomenstalk.com/worthwhile-things-to-keep-in-your-pocketed-wedding-dress/)
+- [yourstrulymedia](https://wedding.allwomenstalk.com/yours-truly-media-on-creating-a-safe-environment-at-your-wedding-amidst-covid-19/)
+- [what do day of coordinators do](https://wedding.allwomenstalk.com/what-does-a-day-of-wedding-coordinator-do-and-why-all-brides-should-consider-getting-one/)
+- [tips for choosing the perfect designer dress for a...](https://fashion.allwomenstalk.com/top-tips-for-choosing-the-perfect-wedding-guest-outfit/)
+- [best wedding tips ever](https://wedding.allwomenstalk.com/best-ever-wedding-planning-tips/)
+- [efficient event coordination](https://lifestyle.allwomenstalk.com/amazing-cost-effective-event-planning-tips/)
+- [wedding invitation trends](https://wedding.allwomenstalk.com/top-wedding-invitation-trends/)
 - [wedding invitation design layout](https://wedding.allwomenstalk.com/wedding-invitation-design-and-layout-tips/)
 - [8 Things People Hate about Weddings ...](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [7 Signs You Should Call off the Wedding... ...](https://wedding.allwomenstalk.com/7-signs-you-should-call-off-the-wedding/)
