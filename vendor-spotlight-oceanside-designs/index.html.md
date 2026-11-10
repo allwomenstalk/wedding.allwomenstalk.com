@@ -1,9 +1,9 @@
 ---
 title: "Vendor Spotlight: Oceanside Designs ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "I am so excited to share with you the lovely Etsy shop, Oceanside Designs , of my sweet friend Mel who is also known as The Oceanside Bride . She recently got…"
 url: "https://wedding.allwomenstalk.com/vendor-spotlight-oceanside-designs/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Vendor Spotlight: Oceanside Designs ...
@@ -60,16 +60,16 @@ I am so happy and excited for Mel and want to send her a big congratulations on 
 
 ## Related Posts
 
-- [frog prince cake](https://wedding.allwomenstalk.com/vendor-spotlight-frg-prince-creative-cakes-cookies/)
+- [Vendor Spotlight: the Favour Shoppe ...](https://wedding.allwomenstalk.com/vendor-spotlight-the-favour-shoppe/)
+- [timati new girlfriend](https://twilight.allwomenstalk.com/5-best-video-games-with-cool-guns/)
+- [wedding yard sale](https://money.allwomenstalk.com/things-you-should-buy-at-garage-yard-sales/)
 - [spotlight wedding garter](https://wedding.allwomenstalk.com/vendor-spotlight-vow-muse/)
 - [butterflies release for weddings](https://wedding.allwomenstalk.com/vendor-spotlight-rice-butterflies/)
-- [5 Dragon Video Games to Buy ...](https://twilight.allwomenstalk.com/5-dragon-video-games-to-buy/)
-- [Vendor Spotlight: the Favour Shoppe ...](https://wedding.allwomenstalk.com/vendor-spotlight-the-favour-shoppe/)
-- [8 Childhood Products We Love ...](https://parenting.allwomenstalk.com/8-childhood-products-we-love/)
 - [jolie girl boutique photos](https://wedding.allwomenstalk.com/vendor-spotlight-jolie-papeterie-boutique/)
-- [wedding yard sale](https://money.allwomenstalk.com/things-you-should-buy-at-garage-yard-sales/)
 - [most famous ferris wheels](https://travel.allwomenstalk.com/best-ferris-wheels-to-turn-your-world-upside-down/)
-- [timati new girlfriend](https://twilight.allwomenstalk.com/5-best-video-games-with-cool-guns/)
+- [5 Dragon Video Games to Buy ...](https://twilight.allwomenstalk.com/5-dragon-video-games-to-buy/)
+- [frog prince cake](https://wedding.allwomenstalk.com/vendor-spotlight-frg-prince-creative-cakes-cookies/)
+- [8 Childhood Products We Love ...](https://parenting.allwomenstalk.com/8-childhood-products-we-love/)
 - [Getting to Know ETSY Shop: Vint Design ...](https://lifestyle.allwomenstalk.com/getting-to-know-etsy-shop-vint-design/)
 - [HOT Online Store Pick ...](https://allwomenstalk.com/hot-online-store-pick/)
 

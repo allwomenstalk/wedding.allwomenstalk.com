@@ -1,9 +1,9 @@
 ---
 title: "Fall Wedding Colors for Soon-to-be Wives ..."
-description: "A Burnt Orange; Rusty Burgundy; Dark Plum; A Sage Green; A Muted, Dark Pink; More ..."
+description: "A Burnt Orange; Rusty Burgundy; Dark Plum; A Sage Green; A Muted, Dark Pink"
 url: "https://wedding.allwomenstalk.com/fall-wedding-colors-for-soon-to-be-wives/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Fall Wedding Colors for Soon\-to\-be Wives ...

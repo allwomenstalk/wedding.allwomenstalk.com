@@ -1,9 +1,9 @@
 ---
 title: "Monochrome Magic: What Happens When Colors..."
-description: "The Classic Romance: Whites and Timeless Elegance; Subtle Sophistication: The Monochrome Play; A Pop of Color: Unleashing the Unexpected; Vibrancy Meets Elegance: A Tropical Mosaic; Blush and Bashful: A Soft Spoken Romance; More ..."
+description: "The Classic Romance: Whites and Timeless Elegance; Subtle Sophistication: The Monochrome Play; A Pop of Color: Unleashing the Unexpected"
 url: "https://wedding.allwomenstalk.com/dreamy-details-mikaella-bridal-bouquets/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Monochrome Magic: What Happens When Colors...

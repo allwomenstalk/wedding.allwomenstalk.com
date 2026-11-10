@@ -1,9 +1,9 @@
 ---
 title: "15 of Today's Amazing Wedding Inspo for Girls Who've Been Dreaming about This Day Forever ..."
-description: "@whitemagazine; @greenweddingshoes; @loverly; @bhldn; @sarahjaneethan; More ..."
+description: "@whitemagazine; @greenweddingshoes; @loverly; @bhldn; @sarahjaneethan"
 url: "https://wedding.allwomenstalk.com/of-todays-amazing-wedding-inspo-for-girls-whove-been-dreaming-about-this-day-forever/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 15 of Today's Amazing Wedding Inspo for Girls Who've Been Dreaming about This Day Forever ...

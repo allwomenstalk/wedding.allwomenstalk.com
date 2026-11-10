@@ -1,9 +1,9 @@
 ---
 title: "Vendor Spotlight: Vow Muse ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "When it came to writing our wedding vows I knew I wanted the words to come from my heart, but I also wanted to add in some words from songs, poems, and quotes…"
 url: "https://wedding.allwomenstalk.com/vendor-spotlight-vow-muse/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Vendor Spotlight: Vow Muse ...
@@ -55,15 +55,15 @@ Contact us today to chat about a project that’s on your mind, or just to say h
 
 ## Related Posts
 
-- [Shopping Tips: 8 Lovely and Indispensable Things Y...](https://money.allwomenstalk.com/shopping-tips-lovely-and-indispensable-things-you-should-always-buy-new/)
 - [coolest cars under 18000](https://money.allwomenstalk.com/great-cars-under-18000/)
-- [7 Great 2 in 1 Products to Try ...](https://beauty.allwomenstalk.com/great-in-1-products-to-try/)
-- [timati new girlfriend](https://twilight.allwomenstalk.com/5-best-video-games-with-cool-guns/)
-- [refillable powder compact with mirror](https://makeup.allwomenstalk.com/stylish-compacts/)
 - [wedding yard sale](https://money.allwomenstalk.com/things-you-should-buy-at-garage-yard-sales/)
+- [timati new girlfriend](https://twilight.allwomenstalk.com/5-best-video-games-with-cool-guns/)
+- [7 Great 2 in 1 Products to Try ...](https://beauty.allwomenstalk.com/great-in-1-products-to-try/)
 - [babies r us costumes](https://parenting.allwomenstalk.com/great-items-from-babiesrus/)
-- [5 Dragon Video Games to Buy ...](https://twilight.allwomenstalk.com/5-dragon-video-games-to-buy/)
 - [8 Childhood Products We Love ...](https://parenting.allwomenstalk.com/8-childhood-products-we-love/)
+- [5 Dragon Video Games to Buy ...](https://twilight.allwomenstalk.com/5-dragon-video-games-to-buy/)
+- [Shopping Tips: 8 Lovely and Indispensable Things Y...](https://money.allwomenstalk.com/shopping-tips-lovely-and-indispensable-things-you-should-always-buy-new/)
+- [refillable powder compact with mirror](https://makeup.allwomenstalk.com/stylish-compacts/)
 - [Shopping Tips: 8 Adorably Charming Things You Can ...](https://money.allwomenstalk.com/shopping-tips-adorably-charming-things-you-can-buy-used/)
 - [Jars of Love: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
 - [Vendor Spotlight: Wedding Stamps ...](https://wedding.allwomenstalk.com/vendor-spotlight-wedding-stamps/)

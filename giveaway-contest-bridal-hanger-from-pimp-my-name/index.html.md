@@ -1,9 +1,9 @@
 ---
 title: "Giveaway Contest Winner: Bridal Hanger from Pimp My Name!"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "We're so excited to give more brides another chance at winning a personalized bridal hanger , this time from Etsy shop Pimp my Name ! We want to thank the…"
 url: "https://wedding.allwomenstalk.com/giveaway-contest-bridal-hanger-from-pimp-my-name/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Giveaway Contest Winner: Bridal Hanger from Pimp My Name!

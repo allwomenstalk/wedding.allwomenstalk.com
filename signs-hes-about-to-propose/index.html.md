@@ -1,9 +1,9 @@
 ---
 title: "7 Signs He's about to Propose ..."
-description: "Have Most of His Bros Settled down?; Does He Often Absentmindedly Talk about Future Plans?; He Actually Seems Interested in Other Weddings; He Wants to Get a Pet Together; He Talks about Rings; More ..."
+description: "Have Most of His Bros Settled down?; Does He Often Absentmindedly Talk about Future Plans?; He Actually Seems Interested in Other Weddings"
 url: "https://wedding.allwomenstalk.com/signs-hes-about-to-propose/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Signs He's about to Propose ...
@@ -48,16 +48,16 @@ Whether you pick up on the signs or not, getting engaged is an event you'll neve
 
 ## Related Posts
 
-- [passive-aggressive behavior examples](https://love.allwomenstalk.com/signs-your-partner-is-passive-aggressive/)
-- [why isn't my relationship working](https://love.allwomenstalk.com/signs-a-relationship-isnt-going-to-work-out/)
-- [it's not a date](https://love.allwomenstalk.com/sure-signs-that-its-not-a-date/)
-- [do guys like love notes](https://love.allwomenstalk.com/sure-signs-hes-a-keeper/)
 - [is he right for me](https://love.allwomenstalk.com/sure-signs-he-isnt-right-for-you/)
-- [favourite person meaning in telugu](https://love.allwomenstalk.com/signs-he-could-go-from-your-friend-to-boyfriend/)
-- [how can you tell when a man is lying](https://love.allwomenstalk.com/signs-your-man-is-telling-lies/)
-- [you'll never be good enough for the wrong person](https://love.allwomenstalk.com/obvious-signs-you-are-dating-the-wrong-person/)
-- [when it's time to let go of a relationship](https://love.allwomenstalk.com/signs-its-time-to-let-go-of-a-relationship-2/)
 - [they miss each other](https://love.allwomenstalk.com/signs-youre-starting-to-fall-for-each-other/)
+- [do guys like love notes](https://love.allwomenstalk.com/sure-signs-hes-a-keeper/)
+- [when it's time to let go of a relationship](https://love.allwomenstalk.com/signs-its-time-to-let-go-of-a-relationship-2/)
+- [favourite person meaning in telugu](https://love.allwomenstalk.com/signs-he-could-go-from-your-friend-to-boyfriend/)
+- [why isn't my relationship working](https://love.allwomenstalk.com/signs-a-relationship-isnt-going-to-work-out/)
+- [you'll never be good enough for the wrong person](https://love.allwomenstalk.com/obvious-signs-you-are-dating-the-wrong-person/)
+- [passive-aggressive behavior examples](https://love.allwomenstalk.com/signs-your-partner-is-passive-aggressive/)
+- [it's not a date](https://love.allwomenstalk.com/sure-signs-that-its-not-a-date/)
+- [how can you tell when a man is lying](https://love.allwomenstalk.com/signs-your-man-is-telling-lies/)
 - [7 Signs It's Time to Move in Together ...](https://lifestyle.allwomenstalk.com/signs-its-time-to-move-in-together/)
 - [7 Signs He's Ready to Move in ...](https://love.allwomenstalk.com/signs-hes-ready-to-move-in/)
 

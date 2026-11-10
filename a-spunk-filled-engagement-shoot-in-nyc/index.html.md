@@ -1,9 +1,9 @@
 ---
 title: "A Spunk Filled Engagement Shoot in NYC ..."
-description: "A Colorful Setting...; Laughter in the Air...; Smile...; Food Truck Heaven...; We All Scream...; More ..."
+description: "A Colorful Setting...; Laughter in the Air...; Smile...; Food Truck Heaven...; We All Scream..."
 url: "https://wedding.allwomenstalk.com/a-spunk-filled-engagement-shoot-in-nyc/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # A Spunk Filled Engagement Shoot in NYC ...
@@ -68,15 +68,15 @@ This photo just says to me, "Are you looking at us?"...."Are we done yet, we wou
 
 ## Related Posts
 
-- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
 - [emma thompson photos](https://celebs.allwomenstalk.com/5-photos-of-emma-in-london/)
-- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
-- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
-- [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
 - [bethenny frankel pregnancy](https://celebs.allwomenstalk.com/bethenny-pregnant-in-the-city/)
-- [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
 - [6 Photos of Happy Birthday Claire!](https://celebs.allwomenstalk.com/happy-birthday-claire-2/)
 - [cast of the backup plan movie](https://celebs.allwomenstalk.com/the-back-up-plan-premiere/)
+- [serena william hot](https://celebs.allwomenstalk.com/serenas-day-at-the-beach/)
+- [niecy nash photos](https://celebs.allwomenstalk.com/nash-wears-yellow-on-live/)
+- [kourtney kardashian mude](https://celebs.allwomenstalk.com/kourtney-keeps-it-fashionable/)
+- [ringless finger](https://celebs.allwomenstalk.com/winslets-ringless-finger/)
+- [yasmine zeroc](https://celebs.allwomenstalk.com/camilla-gets-a-push/)
 - [amandah dominic](https://celebs.allwomenstalk.com/amanda-and-dominic-check-in/)
 - [Real Wedding: Get Your Party on in New Jersey!](https://wedding.allwomenstalk.com/real-wedding-get-your-party-on-in-new-jersey/)
 - [Real Wedding: Sweethearts in San Francisco ...](https://wedding.allwomenstalk.com/real-wedding-sweethearts-in-san-francisco/)

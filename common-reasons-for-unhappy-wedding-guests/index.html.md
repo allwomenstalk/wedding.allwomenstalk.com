@@ -1,9 +1,9 @@
 ---
 title: "7 Common Reasons for Unhappy Wedding Guests ..."
-description: "The Cost to Attend is Too High; The Food is Bad; You Asked for Cash; Lack of a Thank You Card; Being Kept Waiting Excessively; More ..."
+description: "The Cost to Attend is Too High; The Food is Bad; You Asked for Cash; Lack of a Thank You Card; Being Kept Waiting Excessively"
 url: "https://wedding.allwomenstalk.com/common-reasons-for-unhappy-wedding-guests/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Common Reasons for Unhappy Wedding Guests ...
@@ -42,15 +42,15 @@ These are 7 things that typically make for unhappy wedding guests and some thing
 
 ## Related Posts
 
-- [engagement ring photoshoot ideas](https://wedding.allwomenstalk.com/unique-engagement-photo-shoot-ideas/)
-- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
-- [wedding reception music](https://wedding.allwomenstalk.com/tips-for-putting-together-your-wedding-reception-playlist/)
-- [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
 - [wedding ben rector](https://music.allwomenstalk.com/unique-songs-to-play-on-your-wedding-day/)
+- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
+- [choosing bridesmaids](https://wedding.allwomenstalk.com/things-to-consider-when-you-are-choosing-your-bridesmaids/)
+- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
+- [how to say yes to being a bridesmaid](https://wedding.allwomenstalk.com/things-you-should-know-about-being-a-bridesmaid-that-you-probably-dont/)
+- [engagement ring photoshoot ideas](https://wedding.allwomenstalk.com/unique-engagement-photo-shoot-ideas/)
+- [wedding reception music](https://wedding.allwomenstalk.com/tips-for-putting-together-your-wedding-reception-playlist/)
 - [unique elopement ideas](https://wedding.allwomenstalk.com/unusual-places-to-elope-when-you-cant-stand-planning-a-wedding/)
 - [how to pose in wedding photos](https://wedding.allwomenstalk.com/touching-poses-for-mother-daughter-wedding-photos/)
-- [wedding return gifts under 100](https://wedding.allwomenstalk.com/times-when-you-should-consider-returning-your-wedding-gifts/)
-- [wedding cliche sayings](https://wedding.allwomenstalk.com/wedding-cliches-to-consider-forgoing/)
 - [what is 40 year anniversary](https://wedding.allwomenstalk.com/special-wedding-anniversaries-and-what-to-buy/)
 - [8 Advantages of a Guest-Free Wedding ...](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
 - [7 Reasons Why Kids Misbehave ...](https://allwomenstalk.com/7-reasons-why-kids-misbehave/)

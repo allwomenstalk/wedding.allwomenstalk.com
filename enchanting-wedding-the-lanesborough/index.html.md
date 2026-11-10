@@ -1,9 +1,9 @@
 ---
 title: "What Happens When Dreams Come True at The Lanesborough..."
-description: "The Art of Orchestrating a Lavish Affair; A Symphony of Flavors; The Sweetest Touch; Beyond the Day; More ..."
+description: "The Art of Orchestrating a Lavish Affair; A Symphony of Flavors; The Sweetest Touch; Beyond the Day"
 url: "https://wedding.allwomenstalk.com/enchanting-wedding-the-lanesborough/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # What Happens When Dreams Come True at The Lanesborough...

@@ -1,9 +1,9 @@
 ---
 title: "Château de Villette: Where Every Corner Tells a Story of..."
-description: "The Opulent Interiors of Château de Villette; Exploring the Exquisite Exteriors; More ..."
+description: "The Opulent Interiors of Château de Villette; Exploring the Exquisite Exteriors"
 url: "https://wedding.allwomenstalk.com/timeless-elegance-chateau-de-villette/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Château de Villette: Where Every Corner Tells a Story of...

@@ -1,9 +1,9 @@
 ---
 title: "Whispers of a Dress That Tells a Story"
-description: "A Bohemian Dream Come Alive; The Eloquent Language of Minimalism; A Tribute to the Fearless Bride; Beyond the Gown; More ..."
+description: "A Bohemian Dream Come Alive; The Eloquent Language of Minimalism; A Tribute to the Fearless Bride; Beyond the Gown"
 url: "https://wedding.allwomenstalk.com/sweet-creature-wedding-dress/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Whispers of a Dress That Tells a Story

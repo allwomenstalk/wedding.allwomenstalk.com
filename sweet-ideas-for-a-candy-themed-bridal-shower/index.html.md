@@ -1,9 +1,9 @@
 ---
 title: "6 Sweet Ideas for a Candy Themed Bridal Shower ..."
-description: "Candy Ring Pop...; Candy Guestbook...; Bride & Shower Host...; Candy Bar Invitation...; Bubble Gum Cocktail...; More ..."
+description: "Candy Ring Pop...; Candy Guestbook...; Bride & Shower Host...; Candy Bar Invitation...; Bubble Gum Cocktail..."
 url: "https://wedding.allwomenstalk.com/sweet-ideas-for-a-candy-themed-bridal-shower/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 6 Sweet Ideas for a Candy Themed Bridal Shower ...
@@ -52,16 +52,16 @@ Photos: [MarthaStewartWeddings](https://www.marthastewart.com/7952336/dylan-laur
 
 ## Related Posts
 
+- [4 Amazing Wedding Shots You Need to See!](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
 - [october wedding flowers](https://wedding.allwomenstalk.com/beautiful-fall-wedding-flower-ideas/)
-- [winter wedding invitations cheap](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
-- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
-- [elizabeth taylor on marriage](https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/)
 - [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
 - [etiquette wedding](https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/)
-- [wedding catastrophe](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
-- [4 Amazing Wedding Shots You Need to See!](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
 - [colonial baptist church wintersville ohio](https://wedding.allwomenstalk.com/real-wedding-military-love-in-pittsburgh/)
+- [winter wedding invitations cheap](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
+- [wedding catastrophe](https://wedding.allwomenstalk.com/8-potential-wedding-disasters/)
+- [elizabeth taylor on marriage](https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/)
 - [do grooms have to wear a boutonniere](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
+- [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 - [8 Interesting Bridal Shower Gifts for a Bride ...](https://wedding.allwomenstalk.com/8-interesting-bridal-shower-gifts-for-a-bride/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 

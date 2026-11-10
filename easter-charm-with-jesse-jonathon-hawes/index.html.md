@@ -1,9 +1,9 @@
 ---
 title: "Discover What Jesse Jonathon Hawes Has Planned for Easter..."
-description: "Jesse's Magical Easter Tablescapes; The Taste of Easter; Inspiration Beyond Decor; More ..."
+description: "Jesse's Magical Easter Tablescapes; The Taste of Easter; Inspiration Beyond Decor"
 url: "https://wedding.allwomenstalk.com/easter-charm-with-jesse-jonathon-hawes/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Discover What Jesse Jonathon Hawes Has Planned for Easter...

@@ -1,9 +1,9 @@
 ---
 title: "7 Interesting Non-Cake Wedding Cake Ideas ..."
-description: "Rice Krispie Treat Wedding Cake...; Welsh Cakes...; Homemade Pie...; Macaron Tower...; Donut Stand...; More ..."
+description: "Rice Krispie Treat Wedding Cake...; Welsh Cakes...; Homemade Pie...; Macaron Tower...; Donut Stand..."
 url: "https://wedding.allwomenstalk.com/interesting-non-cake-wedding-cake-ideas/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Interesting Non\-Cake Wedding Cake Ideas ...
@@ -66,16 +66,16 @@ Whether you want to replace your wedding cake with these non-cake alternatives o
 
 ## Related Posts
 
-- [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
 - [big marriage](https://wedding.allwomenstalk.com/reasons-to-have-a-big-wedding/)
-- [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
+- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
+- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
 - [writing your own wedding vows](https://wedding.allwomenstalk.com/tips-for-writing-your-own-wedding-vows/)
 - [how to deny a wedding invitation](https://wedding.allwomenstalk.com/ways-to-decline-a-wedding-invitation/)
-- [wedding ideas christmas](https://wedding.allwomenstalk.com/charming-ideas-for-a-christmas-wedding/)
+- [bohemian theme wedding](https://wedding.allwomenstalk.com/bohemian-chic-wedding-ideas/)
+- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
 - [feather invitation](https://wedding.allwomenstalk.com/clever-ideas-for-your-feather-themed-wedding/)
 - [2010 wedding songs](https://wedding.allwomenstalk.com/of-the-best-classic-wedding-songs/)
-- [chevron maxi dress](https://wedding.allwomenstalk.com/chic-ideas-for-a-chevron-themed-wedding/)
-- [parties after weddings](https://wedding.allwomenstalk.com/fun-wedding-after-party-ideas/)
+- [black and green wedding cake](https://wedding.allwomenstalk.com/ways-to-plan-a-mint-green-wedding/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 

@@ -1,9 +1,9 @@
 ---
 title: "What Nobody Warns You About With Weddings: 8 Things People Secretly Hate"
-description: "The Huge Crowd They do Not Know; How Much They Cost; Bridesmaid Dresses; Passing out; The Chicken Dance; More ..."
+description: "The Huge Crowd They do Not Know; How Much They Cost; Bridesmaid Dresses; Passing out; The Chicken Dance"
 url: "https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # What Nobody Warns You About With Weddings: 8 Things People Secretly Hate
@@ -60,16 +60,16 @@ So, what do you not like about weddings?
 
 ## Related Posts
 
+- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 - [6 Ways to Color a Star Spangled Wedding ...](https://wedding.allwomenstalk.com/ways-to-color-a-star-spangled-wedding/)
+- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
+- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
+- [blackening of the bride](https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/)
+- [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
 - [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
 - [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
-- [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
-- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
-- [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
-- [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
-- [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
-- [blackening of the bride](https://wedding.allwomenstalk.com/zany-wedding-traditions-from-all-around-the-world/)
 - [etsy bridal registry](https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/)
+- [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
 - [Top 10 Things Children May Not like ...](https://parenting.allwomenstalk.com/top-10-things-children-may-not-like/)
 - [8 Things Not to do at a Wedding ...](https://fashion.allwomenstalk.com/8-things-not-to-do-at-a-wedding/)
 

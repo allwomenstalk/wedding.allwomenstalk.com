@@ -1,9 +1,9 @@
 ---
 title: "You’ve probably never seen marriage proposals done like this"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "He gets down on one knee, hand reaching into the pocket and before you know it, the sparkly stone is on your finger and you’re crying like a baby. Nothing…"
 url: "https://wedding.allwomenstalk.com/7-wackiest-proposals-ever/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # You’ve probably never seen marriage proposals done like this
@@ -57,15 +57,15 @@ Would you find any of these unusual proposals romantic or do you prefer the trad
 ## Related Posts
 
 - [boudoir photos for groom](https://wedding.allwomenstalk.com/5-classy-boudoir-photos-to-surprise-your-groom-with/)
-- [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
-- [4 Ways to Spread the Love on Your Wedding Day ...](https://wedding.allwomenstalk.com/ways-to-spread-the-love-on-your-wedding-day/)
-- [late night bites wedding](https://wedding.allwomenstalk.com/late-night-wedding-reception-snacks/)
-- [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
-- [summer beach wedding colors](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
-- [city chic garden city](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-city-chic/)
 - [Real Wedding: Sweethearts in San Francisco ...](https://wedding.allwomenstalk.com/real-wedding-sweethearts-in-san-francisco/)
-- [money saving tips for wedding](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
+- [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
+- [4 Ways to Spread the Love on Your Wedding Day ...](https://wedding.allwomenstalk.com/ways-to-spread-the-love-on-your-wedding-day/)
 - [bridesmaid job](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
+- [Inspirational Bridal Shoot: Love Stories ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-love-stories/)
+- [money saving tips for wedding](https://wedding.allwomenstalk.com/wedding-tips-that-could-save-you-tons-of-money/)
+- [city chic garden city](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-city-chic/)
+- [late night bites wedding](https://wedding.allwomenstalk.com/late-night-wedding-reception-snacks/)
+- [summer beach wedding colors](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
 - [7 Wackiest Proposals Ever ...](https://wedding.allwomenstalk.com/7-wackiest-proposals-ever/)
 - [7 Most Unusual Proposal Ideas ...](https://allwomenstalk.com/7-most-unusual-proposal-ideas/)
 

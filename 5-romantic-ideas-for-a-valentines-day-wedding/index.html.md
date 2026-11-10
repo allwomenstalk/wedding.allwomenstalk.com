@@ -1,9 +1,9 @@
 ---
 title: "17 Romantic Ideas for a Valentine's Day Wedding ..."
-description: "Red and White All over; Send Them Some Love; Something Red; Beautiful Blossoms; Put Some Love in the Mix; More ..."
+description: "Red and White All over; Send Them Some Love; Something Red; Beautiful Blossoms; Put Some Love in the Mix"
 url: "https://wedding.allwomenstalk.com/5-romantic-ideas-for-a-valentines-day-wedding/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 17 Romantic Ideas for a Valentine's Day Wedding ...
@@ -118,16 +118,16 @@ This article was written in collaboration with editor Holly Riordan.
 
 ## Related Posts
 
-- [So You're Planning a Wedding!](https://allwomenstalk.com/3-2/)
-- [bridesmaid duties](https://lifestyle.allwomenstalk.com/bridesmaid-duties-you-should-know-about/)
-- [ginnifer goodwin beach](https://celebs.allwomenstalk.com/something-borrowed-on-the-beach/)
-- [funny baby shower themes](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)
+- [kevin and danielle jonas](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
 - [how to stay calm on wedding day](https://love.allwomenstalk.com/tips-to-stay-calm-on-your-wedding-day/)
 - [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
-- [kevin and danielle jonas](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
-- [late summer wedding flowers](https://gardening.allwomenstalk.com/flowers-to-use-for-summer-wedding-bouquets/)
+- [funny baby shower themes](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)
 - [7 Wedding Planning Tips ...](https://love.allwomenstalk.com/wedding-planning-tips/)
+- [late summer wedding flowers](https://gardening.allwomenstalk.com/flowers-to-use-for-summer-wedding-bouquets/)
+- [So You're Planning a Wedding!](https://allwomenstalk.com/3-2/)
 - [single girl wedding photos](https://lifestyle.allwomenstalk.com/ways-for-the-single-girl-to-survive-a-wedding/)
+- [bridesmaid duties](https://lifestyle.allwomenstalk.com/bridesmaid-duties-you-should-know-about/)
+- [ginnifer goodwin beach](https://celebs.allwomenstalk.com/something-borrowed-on-the-beach/)
 - [8 Romantic Ideas for Summer Dates ...](https://love.allwomenstalk.com/romantic-ideas-for-summer-dates/)
 - [7 Romantic Winter Date Ideas ...](https://love.allwomenstalk.com/romantic-winter-date-ideas/)
 

@@ -1,9 +1,9 @@
 ---
 title: "Vendor Spotlight: \"CakeMates\" Handmade Cake Toppers ..."
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Handmade work always amazes me and when I came across CakeMates , who started following me on twitter, I was just in awe of Kylie's gorgeous personalized cake…"
 url: "https://wedding.allwomenstalk.com/vendor-spotlight-cakemates-handmade-cake-toppers/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # Vendor Spotlight: "CakeMates" Handmade Cake Toppers ...

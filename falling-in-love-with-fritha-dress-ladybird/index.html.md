@@ -1,9 +1,9 @@
 ---
 title: "The Secret Behind the Fritha Wedding Dress by Ladybird That..."
-description: "The Unveiling of Ladybird's Fritha; Capturing Perfection at Sunset; A Journey with Ladybird; The Special Back Design; Making Memories with Ladybird; More ..."
+description: "The Unveiling of Ladybird's Fritha; Capturing Perfection at Sunset; A Journey with Ladybird; The Special Back Design; Making Memories with Ladybird"
 url: "https://wedding.allwomenstalk.com/falling-in-love-with-fritha-dress-ladybird/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The Secret Behind the Fritha Wedding Dress by Ladybird That...

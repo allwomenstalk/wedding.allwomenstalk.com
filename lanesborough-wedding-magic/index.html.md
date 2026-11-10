@@ -1,9 +1,9 @@
 ---
 title: "When Wildaboutflower Designs Graceful Floral Arrangements"
-description: "Immerse Yourself in Timeless Elegance; A Feast for the Eyes and the Palate; Wedding Cakes That Wow; The Mirror's Secret Story; Graceful Floral Arrangements by Wildaboutflower; More ..."
+description: "Immerse Yourself in Timeless Elegance; A Feast for the Eyes and the Palate; Wedding Cakes That Wow; The Mirror's Secret Story"
 url: "https://wedding.allwomenstalk.com/lanesborough-wedding-magic/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # When Wildaboutflower Designs Graceful Floral Arrangements

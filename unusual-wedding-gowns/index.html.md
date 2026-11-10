@@ -1,9 +1,9 @@
 ---
 title: "7 Unusual Wedding Gowns ..."
-description: "Mrs. Claus; Halloween Chic; Pretty in Pink; Black Beauty; Victorian Frills; More ..."
+description: "Mrs. Claus; Halloween Chic; Pretty in Pink; Black Beauty; Victorian Frills"
 url: "https://wedding.allwomenstalk.com/unusual-wedding-gowns/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 7 Unusual Wedding Gowns ...
@@ -56,16 +56,16 @@ Many new brides are opting to forgo the traditional wedding, from dress to locat
 
 ## Related Posts
 
-- [strapless ruffle wedding dress](https://wedding.allwomenstalk.com/playful-ruffle-wedding-dresses/)
-- [wedding gowns with red](https://wedding.allwomenstalk.com/show-stopping-red-wedding-gowns/)
-- [bridesmaid dresses winter wedding](https://wedding.allwomenstalk.com/lovely-winter-bridesmaids-dresses/)
-- [cute spring midi dresses](https://fashion.allwomenstalk.com/stylish-midi-dresses-for-spring/)
-- [whats a halter dress](https://fashion.allwomenstalk.com/fashionable-halter-dresses/)
-- [modern vintage bridesmaid dresses](https://wedding.allwomenstalk.com/beautiful-alfred-angelo-bridesmaid-dresses/)
 - [alfred angelo flower girl dress](https://wedding.allwomenstalk.com/gorgeous-alfred-angelo-wedding-dresses/)
-- [vintage bride dresses](https://wedding.allwomenstalk.com/beautiful-vintage-wedding-dresses/)
 - [jennifers body prom dress](https://fashion.allwomenstalk.com/gorgeous-prom-dresses-for-any-body-shape/)
 - [unique spring dresses](https://fashion.allwomenstalk.com/spring-dresses-we-love/)
+- [modern vintage bridesmaid dresses](https://wedding.allwomenstalk.com/beautiful-alfred-angelo-bridesmaid-dresses/)
+- [wedding gowns with red](https://wedding.allwomenstalk.com/show-stopping-red-wedding-gowns/)
+- [bridesmaid dresses winter wedding](https://wedding.allwomenstalk.com/lovely-winter-bridesmaids-dresses/)
+- [whats a halter dress](https://fashion.allwomenstalk.com/fashionable-halter-dresses/)
+- [strapless ruffle wedding dress](https://wedding.allwomenstalk.com/playful-ruffle-wedding-dresses/)
+- [cute spring midi dresses](https://fashion.allwomenstalk.com/stylish-midi-dresses-for-spring/)
+- [vintage bride dresses](https://wedding.allwomenstalk.com/beautiful-vintage-wedding-dresses/)
 - [7 Wedding Dress Alternatives ...](https://wedding.allwomenstalk.com/7-wedding-dress-alternatives/)
 - [7 Wonderful Wedding Dresses from Etsy ...](https://wedding.allwomenstalk.com/7-wonderful-wedding-dresses-from-etsy/)
 

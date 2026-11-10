@@ -1,9 +1,9 @@
 ---
 title: "14 of Today's Charming Wedding Inspo for Ladies Who Want a Glamorous Wedding ..."
-description: "@whimsicalwonderlandweddings; @whitemagazine; @greenweddingshoes; @apracticalwedding; @weddedwonderland; More ..."
+description: "@whimsicalwonderlandweddings; @whitemagazine; @greenweddingshoes; @apracticalwedding; @weddedwonderland"
 url: "https://wedding.allwomenstalk.com/best-wedding-accounts-on-instagram-6/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # 14 of Today's Charming Wedding Inspo for Ladies Who Want a Glamorous Wedding ...

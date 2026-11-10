@@ -1,9 +1,9 @@
 ---
 title: "The Sweetest Same Sex Wedding Ideas to Make Your Heart Melt ..."
-description: "Draped in Love and Rainbows; Glitter Bomb; Mrs & Mrs; Rustic Chic; Support in the Truest Sense; More ..."
+description: "Draped in Love and Rainbows; Glitter Bomb; Mrs & Mrs; Rustic Chic; Support in the Truest Sense"
 url: "https://wedding.allwomenstalk.com/the-sweetest-same-sex-wedding-ideas-for-your-big-day/"
 category: "wedding"
-last_updated: "2026-10-22"
+last_updated: "2026-11-10"
 ---
 
 # The Sweetest Same Sex Wedding Ideas to Make Your Heart Melt ...
@@ -83,15 +83,15 @@ Love is love is love, am I right?
 ## Related Posts
 
 - [gateau geode](https://wedding.allwomenstalk.com/these-geode-wedding-cakes-will-blow-your-mind/)
-- [wedding train movie](https://wedding.allwomenstalk.com/romantic-girls-will-swoon-with-envy-over-the-most-expensive-movie-weddings/)
-- [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
-- [celebrating engagement](https://wedding.allwomenstalk.com/inspiring-ways-to-celebrate-getting-engaged-to-your-sweetheart/)
 - [soft glam wedding guest makeup](https://wedding.allwomenstalk.com/wedding-makeup-inspos-to-be-the-prettiest-bride-on-your-big-day/)
-- [harry potter-themed wedding ideas](https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/)
 - [films about weddings](https://movies.allwomenstalk.com/wedding-movies-that-are-about-more-than-just-a-wedding/)
+- [wedding card concept](https://wedding.allwomenstalk.com/trendiest-wedding-card-ideas-for-girls-ready-to-tie-the-knot/)
 - [harry potter hat cake](https://wedding.allwomenstalk.com/harry-potter-themed-wedding-cakes-for-the-nerd-in-you/)
 - [ring finger tattoo roman numeral](https://wedding.allwomenstalk.com/amazing-wedding-ring-alternatives-for-untraditional-couples/)
+- [celebrating engagement](https://wedding.allwomenstalk.com/inspiring-ways-to-celebrate-getting-engaged-to-your-sweetheart/)
+- [harry potter-themed wedding ideas](https://wedding.allwomenstalk.com/this-harry-potter-themed-wedding-was-magic/)
 - [most instagrammed places in the world](https://wedding.allwomenstalk.com/the-most-instagrammed-places-to-get-married/)
+- [wedding train movie](https://wedding.allwomenstalk.com/romantic-girls-will-swoon-with-envy-over-the-most-expensive-movie-weddings/)
 - [5 Beach Wedding Ideas to Inspire Your Summer Weddi...](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
 - [17 Romantic Ideas for a Valentine's Day Wedding .....](https://wedding.allwomenstalk.com/5-romantic-ideas-for-a-valentines-day-wedding/)
 
