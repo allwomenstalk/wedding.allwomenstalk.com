@@ -3,7 +3,7 @@ title: "3 Hot Color Palette Trends for Your 2011 Wedding ..."
 description: "Pink and Gray Are Here to Stay...; Green & Orange All Year Long...; Aquamarine & Gold Glitter in the Sun..."
 url: "https://wedding.allwomenstalk.com/hot-color-palette-trends-for-your-wedding/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 3 Hot Color Palette Trends for Your 2011 Wedding ...
@@ -14,7 +14,7 @@ From **weddings**, celebrities, and fashion to television, sports, and entertain
 
 ![Pink and Gray Are Here to Stay...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/01/pinkandgray_404x461.jpg)
 
-Photo: [jacinandpat.blogspot.com](https://goo.gl/ZvcIV6)
+Photo: [jacinandpat.blogspot.com](https://accounts.google.com/v3/signin/identifier?continue=https://draft.blogger.com/blogin?u%3Dhttps://jacinandpat.blogspot.com/2011/01/floral-spotlight-silver-brunia.html&followup=https://draft.blogger.com/blogin?u%3Dhttps://jacinandpat.blogspot.com/2011/01/floral-spotlight-silver-brunia.html&passive=1209600&flowName=WebLiteSignIn&flowEntry=ServiceLogin&dsh=S-1002685156:1794563005966982)
 
 Did you hear that [honeysuckle pink](https://www.pantone.com/articles) was just named by [Pantone paints](https://www.pantone.com/articles) as the **color of 2011**? If you like to follow **wedding** and fashion **trends** then pair your stunning **honeysuckle pink** with tones of **grays** and **silvers**. I love the contrast of the **pink peonies** and pink ranunculus with the **silver brunia berries **and fuzzy gray dusty miller leaves. Will your groom wear a [gray suit](https://allwomenstalk.com/7-hot-looks-for-every-groom-to-rock-in-style/)for your pink and gray wedding?
 
@@ -42,14 +42,14 @@ Top Photo: [StyleMePretty.com](https://www.stylemepretty.com/2010/12/17/palos-ve
 
 - [trends of 2012](https://fashion.allwomenstalk.com/must-do-trends-for/)
 - [site:fashion.allwomenstalk.com](https://fashion.allwomenstalk.com/affordable-spring-trends/)
-- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [7 New and Hot Makeup Trends to Follow ...](https://makeup.allwomenstalk.com/new-and-hot-makeup-trends-to-follow/)
 - [5 Flowers for 2011 ...](https://gardening.allwomenstalk.com/flowers-for/)
+- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
+- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
+- [8 Essential Jewelry Fashions for 2012 ...](https://jewelry.allwomenstalk.com/essential-jewelry-fashions-for/)
 - [Fall Fashion Trends ...](https://allwomenstalk.com/fall-fashion-trends/)
 - [fashion of 2007](https://allwomenstalk.com/fashion-trends-nersels-designer-trendy-gold-jewelry/)
 - [2006 trends](https://allwomenstalk.com/trendy-year-wrap-up/)
-- [food trends 2012](https://food.allwomenstalk.com/food-trends-that-will-feature-big-in/)
-- [hair trends 2011](https://hair.allwomenstalk.com/hair-trends-for-the-fall/)
 - [6 Creative Styles for Your Wedding Aisle ...](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
 - [6 Perfect Combinations for Fall Wedding Colors ...](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
 
