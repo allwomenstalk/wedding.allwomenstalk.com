@@ -3,7 +3,7 @@ title: "The Charity Wedding: above and beyond the Wedding Industry ..."
 description: "Why Did You Decide to do This for Your Wedding?...; What Are the Charities That You Donated to?; What Vendors Helped Donate or Give Cheaper Services?"
 url: "https://wedding.allwomenstalk.com/the-charity-wedding-above-and-beyond-the-wedding-industry/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # The Charity Wedding: above and beyond the Wedding Industry ...
@@ -26,7 +26,7 @@ We had never donated or volunteered with any of the charities that were selected
 
 (Alicia's gorgeous bridal sash made by Marie of [Emici Bridal](http://www.emicibridal.com/))
 
-I can't not even begin to tell you how honored and humbled we were by the response from vendors and by the amazingly talented people that got on board wholeheartedly. Our vendors included [Melissa Dunstan Photography](http://melissadunstan.blogspot.com/), [KD Event Designs](http://kdeventdesigns.blogspot.com/),[Glamorous Occasions](https://web.archive.org/web/http://www.glamorousoccasions.com/)(floral), [The R2 Studio](http://www.ther2studio.com/blog/)(engagement photos), [Taltos Productions](https://web.archive.org/web/http://www.taltosvideo.com/), [Downtown Browne Productions](http://dtbpro.com/)(DJ), [Carly Thomas Jewelry](https://goo.gl/nWzBjR),[Emici Bridal](http://www.emicibridal.com/), [Creative Custom Card Boxes](https://www.hugedomains.com/domain_profile.cfm?d=creativecustomcardboxes.com), [Heartline Cafe](https://web.archive.org/web/http://heartlinecafe.com/)(rehearsal dinner), [Red Rock Cafe](https://web.archive.org/web/https://theredrockcafe.wordpress.com/), [Sedona Sweet Arts](https://donnajoys.com/), [Sedona Woman Wine](https://www.facebook.com/unsupportedbrowser), and [Sweet Grace Restaurant](https://www.facebook.com/unsupportedbrowser)(favors). Honestly the only things we paid for in full were our outfits: dress, suit, and shoes, the venue and rentals. Of course several vendors thought we were out of our minds so the fact that so many wonderful people got involved- some even contacted me and asked how they could help- was truly incredible. In addition it was in mid-October- a very busy wedding season in Northern Az which made their sacrifice even more impressive.
+I can't not even begin to tell you how honored and humbled we were by the response from vendors and by the amazingly talented people that got on board wholeheartedly. Our vendors included [Melissa Dunstan Photography](http://melissadunstan.blogspot.com/), [KD Event Designs](http://kdeventdesigns.blogspot.com/),[Glamorous Occasions](https://web.archive.org/web/http://www.glamorousoccasions.com/)(floral), [The R2 Studio](http://www.ther2studio.com/blog/)(engagement photos), [Taltos Productions](https://web.archive.org/web/http://www.taltosvideo.com/), [Downtown Browne Productions](http://dtbpro.com/)(DJ), Carly Thomas Jewelry,[Emici Bridal](http://www.emicibridal.com/), [Creative Custom Card Boxes](https://www.hugedomains.com/domain_profile.cfm?d=creativecustomcardboxes.com), [Heartline Cafe](https://web.archive.org/web/http://heartlinecafe.com/)(rehearsal dinner), [Red Rock Cafe](https://web.archive.org/web/https://theredrockcafe.wordpress.com/), [Sedona Sweet Arts](https://donnajoys.com/), [Sedona Woman Wine](https://www.facebook.com/unsupportedbrowser), and [Sweet Grace Restaurant](https://www.facebook.com/unsupportedbrowser)(favors). Honestly the only things we paid for in full were our outfits: dress, suit, and shoes, the venue and rentals. Of course several vendors thought we were out of our minds so the fact that so many wonderful people got involved- some even contacted me and asked how they could help- was truly incredible. In addition it was in mid-October- a very busy wedding season in Northern Az which made their sacrifice even more impressive.
 
 Please continue reading about The Charity Wedding...
 
@@ -50,15 +50,15 @@ Congratulations to Alicia and Kyle...thank you for an inspiring story and weddin
 
 ## Related Posts
 
-- [pink brides](https://wedding.allwomenstalk.com/ways-to-tickle-your-wedding-pink/)
-- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
 - [girls loving dogs](https://wedding.allwomenstalk.com/1-guy-1-girl-1-dog-a-fun-loving-engagement-shoot-in-florida/)
-- [bachelorette party wild](https://wedding.allwomenstalk.com/7-no-nos-at-a-bachelorette-party/)
-- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
+- [pink brides](https://wedding.allwomenstalk.com/ways-to-tickle-your-wedding-pink/)
 - [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
-- [whimsical fall](https://wedding.allwomenstalk.com/great-ideas-for-a-whimsical-fall-wedding/)
-- [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
+- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
+- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
+- [bachelorette party wild](https://wedding.allwomenstalk.com/7-no-nos-at-a-bachelorette-party/)
 - [honeymoon of a lifetime](https://wedding.allwomenstalk.com/honeymoon-of-a-lifetime-guest-blogger-terri-try-anything-once/)
+- [7 Tips for Buying Wedding Gifts ...](https://wedding.allwomenstalk.com/7-tips-for-buying-wedding-gifts/)
+- [whimsical fall](https://wedding.allwomenstalk.com/great-ideas-for-a-whimsical-fall-wedding/)
 - [loreal paris color stylo silver](https://wedding.allwomenstalk.com/wedding-centerpiece-ideas-that-look-amazing/)
 - [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 - [Jars of Love: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
