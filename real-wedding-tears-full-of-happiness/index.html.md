@@ -3,7 +3,7 @@ title: "Real Wedding: Tears Full of Happiness ..."
 description: "Getting Ready...; Beautiful Photography...; Details; Here Come the Tears...; Here Comes the Bride..."
 url: "https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Real Wedding: Tears Full of Happiness ...
@@ -72,7 +72,7 @@ More** touching moments** that make me love Hattie and Keith's wedding even more
 
 **Words from the Bride**:
 
-"Keith and I were 'matched' on [eharmony](https://goo.gl/nR5ITK):). We were matched on December 10, 2009 and corresponded through the site and through email. Meeting through a site like that kind of sets the tone for great communication, good questions and a lot of long emails and conversations. We first spoke on the phone on January 11th and right around the corner came February 13th, the first day we actually laid eyes on each other"
+"Keith and I were 'matched' on eharmony:). We were matched on December 10, 2009 and corresponded through the site and through email. Meeting through a site like that kind of sets the tone for great communication, good questions and a lot of long emails and conversations. We first spoke on the phone on January 11th and right around the corner came February 13th, the first day we actually laid eyes on each other"
 
 ## 3. Love is in the Air...
 
@@ -99,15 +99,15 @@ Bride's Gown: [Maggie Sottero](https://www.maggiesottero.com/)/ Flowers: [Countr
 ## Related Posts
 
 - [found lining a wedding aisle](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
-- [diy wedding scrapbook ideas](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)
-- [wedding blog guest post](https://wedding.allwomenstalk.com/favourite-weddings-guest-blogger-diana-from-express-o/)
 - [pittsburgh steelers cake](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
 - [unique centerpieces](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
-- [wedding day banners](https://wedding.allwomenstalk.com/3-ways-to-bunt-or-banner-your-wedding-day/)
+- [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 - [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
+- [wedding day banners](https://wedding.allwomenstalk.com/3-ways-to-bunt-or-banner-your-wedding-day/)
+- [diy wedding scrapbook ideas](https://wedding.allwomenstalk.com/4-diy-wedding-card-ideas/)
+- [wedding blog guest post](https://wedding.allwomenstalk.com/favourite-weddings-guest-blogger-diana-from-express-o/)
 - [rain on wedding day quotes](https://wedding.allwomenstalk.com/wedding-superstitions-from-around-the-world/)
 - [5 Peony Bouquets to Brighten up Your Wedding Day ....](https://wedding.allwomenstalk.com/peony-bouquets-to-brighten-up-your-wedding-day/)
-- [7 Tips I Would Give to Someone Just Getting Marrie...](https://wedding.allwomenstalk.com/7-tips-i-would-give-to-someone-just-getting-married/)
 - [Real Wedding: Playful & Romantic in Sacramento ...](https://wedding.allwomenstalk.com/real-wedding-playful-romantic-in-sacramento/)
 - [Jars of Love: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
 
