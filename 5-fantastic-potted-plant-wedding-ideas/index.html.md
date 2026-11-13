@@ -3,7 +3,7 @@ title: "5 Fantastic Potted Plant Wedding Ideas ..."
 description: "Romantic Silver & Pink...; DIY Tags...; Mix It up...; Potted Favors...; Vintage Tins..."
 url: "https://wedding.allwomenstalk.com/5-fantastic-potted-plant-wedding-ideas/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 5 Fantastic Potted Plant Wedding Ideas ...
@@ -24,7 +24,7 @@ I love the colors and tones of this big silver tin with the potted pink hyacinth
 
 Photo: [ProjectWedding](https://www.weddingwire.com/projectwedding-is-now-weddingwire)
 
-When I first saw these adorable potted zinnias I thought they were in cute [Chinese take-out boxes](https://web.archive.org/web/http://www.save-on-crafts.com/chinesetakeout.html)! That wouldn't be a bad idea either, but these colorful plants are just wrapped in [Kraft paper](https://goo.gl/zOjqRg), and tied with some string. The idea I really love is the** personalized tag** with your guests' name and table number. A great idea as an escort card for guests to take home as favors.
+When I first saw these adorable potted zinnias I thought they were in cute [Chinese take-out boxes](https://web.archive.org/web/http://www.save-on-crafts.com/chinesetakeout.html)! That wouldn't be a bad idea either, but these colorful plants are just wrapped in [Kraft paper](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.officedepot.com%2Fa%2Fproducts%2F185074%2FPacon-Spectra-Art-Kraft-Roll-48%2F%3Fcm_cat%3D2000000371&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesnj7hff0025vh00000), and tied with some string. The idea I really love is the** personalized tag** with your guests' name and table number. A great idea as an escort card for guests to take home as favors.
 
 ## 3. Mix It up...
 
@@ -32,15 +32,15 @@ When I first saw these adorable potted zinnias I thought they were in cute [Chin
 
 Photo:[MarthaStewartWeddings](https://www.marthastewart.com/7890910/laura-and-ben-brooklyn-new-york)
 
-What I really love about** potted plant centerpieces** is when they are home **grown just for the big day. It's more than just a centerpiece, a flower, or plant, it's the **love and care that the couple put into their potted plants just for the wedding. Here[bride and groom](https://wrenhandmade.typepad.com/wren_handmade/2009/06/the-wait-is-finally-over.html)Laura and Ben, and family members grew the herbs, geraniums, and other plants and hand-painted the pots with love! The lovely bride handmade many of their wedding items and has her own [Etsy](https://goo.gl/OJZTdw)store as well.
+What I really love about** potted plant centerpieces** is when they are home **grown just for the big day. It's more than just a centerpiece, a flower, or plant, it's the **love and care that the couple put into their potted plants just for the wedding. Here[bride and groom](https://wrenhandmade.typepad.com/wren_handmade/2009/06/the-wait-is-finally-over.html)Laura and Ben, and family members grew the herbs, geraniums, and other plants and hand-painted the pots with love! The lovely bride handmade many of their wedding items and has her own [Etsy](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2Fwrenhandmade&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesnj86kv0025vh00000)store as well.
 
 ## 2. Potted Favors...
 
 ![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/02/pottedfavors_415x415.jpg)
 
-Photo: [Beau-coup](https://goo.gl/81fOqW)
+Photo: [Beau-coup](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.beau-coup.com%2Fminiatureflowerpots.htm&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesnj7hk00025vh00000)
 
-Say** "Thank You"** with these wonderful little pots from [Beau-coup](https://goo.gl/9QOQj7). I love the sweet little saying on each and the painted flowers around the rim. Plant whatever you like from tulip bulbs to succulents. No matter what's inside these are sure to put a smile on your guests' faces as a favor that can be enjoyed in their gardens as they remember your beautiful wedding day.
+Say** "Thank You"** with these wonderful little pots from [Beau-coup](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.beau-coup.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesnj36om0025vh00000). I love the sweet little saying on each and the painted flowers around the rim. Plant whatever you like from tulip bulbs to succulents. No matter what's inside these are sure to put a smile on your guests' faces as a favor that can be enjoyed in their gardens as they remember your beautiful wedding day.
 
 ## 1. Vintage Tins...
 
@@ -56,16 +56,16 @@ Have you found a love for potted plants for your wedding decor?
 
 ## Related Posts
 
-- [honeymoon in jamaica](https://wedding.allwomenstalk.com/a-tropical-paradise-honeymoon-in-jamaica-guest-blogger-alicia-the-charity-wedding/)
-- [bridesmaids with fans](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
-- [green themed wedding](https://wedding.allwomenstalk.com/7-ways-to-celebrate-an-irish-themed-wedding/)
-- [7 Tips on Planning a Great Bridal Shower ...](https://wedding.allwomenstalk.com/tips-on-planning-a-great-bridal-shower/)
-- [4 Ways to Mix up the Colors for Your Wedding ...](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)
 - [katherine heigl scar](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
 - [bridal jitters](https://wedding.allwomenstalk.com/8-ways-to-handle-pre-wedding-jitters/)
-- [Real Wedding: Handmade with Love ...](https://wedding.allwomenstalk.com/real-wedding-handmade-with-love/)
-- [grey and purple wedding](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
 - [bhldn table number holder](https://wedding.allwomenstalk.com/wedding-decorating-accessories-i-love-from-bhldn/)
+- [7 Tips on Planning a Great Bridal Shower ...](https://wedding.allwomenstalk.com/tips-on-planning-a-great-bridal-shower/)
+- [Real Wedding: Handmade with Love ...](https://wedding.allwomenstalk.com/real-wedding-handmade-with-love/)
+- [green themed wedding](https://wedding.allwomenstalk.com/7-ways-to-celebrate-an-irish-themed-wedding/)
+- [honeymoon in jamaica](https://wedding.allwomenstalk.com/a-tropical-paradise-honeymoon-in-jamaica-guest-blogger-alicia-the-charity-wedding/)
+- [bridesmaids with fans](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
+- [grey and purple wedding](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
+- [4 Ways to Mix up the Colors for Your Wedding ...](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)
 - [5 Beach Wedding Ideas to Inspire Your Summer Weddi...](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
 - [5 Unique Place Card Ideas for Your Wedding ...](https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/)
 
