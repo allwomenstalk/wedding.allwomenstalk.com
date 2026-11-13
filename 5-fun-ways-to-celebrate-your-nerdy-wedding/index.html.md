@@ -3,7 +3,7 @@ title: "5 Fun Ways to Celebrate Your Nerdy Wedding ..."
 description: "I Heart Robots...; Lego Land...; Book Worm...; Math Geek Favor...; Star Wars Fan..."
 url: "https://wedding.allwomenstalk.com/5-fun-ways-to-celebrate-your-nerdy-wedding/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 5 Fun Ways to Celebrate Your Nerdy Wedding ...
@@ -22,7 +22,7 @@ Okay, whether you're a **nerd** or not you have to admit how cute these **robots
 
 ![Lego Land...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/04/legocufflink_418x371.jpg)
 
-Photo: [Etsy.com/shop/Crimsonking](https://goo.gl/um8ciu)
+Photo: [Etsy.com/shop/Crimsonking](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F55189273%2Ffull-body-wedding-tuxedo-groom-with%3Fref%3Dv1_other_2&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesrvzde10025vh00000)
 
 Is he not the cutest little **groom**! I just want to hold him and carry his little **lego **body around all day! If your husband-to-be is a lego fanatic these **lego groom cufflinks **are the perfect gift for him to open on the day of your wedding. Who needs formal cufflinks when you have these fun little guys!
 
@@ -54,16 +54,16 @@ Is it the buns on the side of the bride's head or just the look of this **nerdy 
 
 ## Related Posts
 
-- [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
-- [crazy venue](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)
-- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
-- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
-- [wedding toast tips](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
-- [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
-- [rustic diy wedding centerpieces](https://wedding.allwomenstalk.com/5-rustic-wedding-centerpiece-ideas/)
-- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
-- [unique winter wedding ideas](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
 - [7 Innovative Bridal Shower Ideas ...](https://wedding.allwomenstalk.com/innovative-bridal-shower-ideas/)
+- [unique winter wedding ideas](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
+- [rustic diy wedding centerpieces](https://wedding.allwomenstalk.com/5-rustic-wedding-centerpiece-ideas/)
+- [wedding toast tips](https://wedding.allwomenstalk.com/7-tips-for-writing-an-awesome-wedding-toast/)
+- [country wedding food](https://wedding.allwomenstalk.com/4-ways-to-throw-a-country-wedding/)
+- [crazy venue](https://wedding.allwomenstalk.com/8-crazy-ideas-for-a-wedding-venue/)
+- [4 Romantic Weddings from My Home State ...](https://wedding.allwomenstalk.com/romantic-weddings-from-my-home-state/)
+- [5 Ways to Color Your Wedding Purple ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-purple/)
+- [6 Fun Ideas for a Destination Wedding ...](https://wedding.allwomenstalk.com/fun-ideas-for-a-destination-wedding/)
+- [10 Style Tips on What to Wear to a Wedding ...](https://wedding.allwomenstalk.com/style-tips-on-what-to-wear-to-a-wedding/)
 - [5 Ways to Celebrate a Football Themed Wedding ...](https://wedding.allwomenstalk.com/5-ways-to-celebrate-a-football-themed-wedding/)
 - [5 Fantastic Potted Plant Wedding Ideas ...](https://wedding.allwomenstalk.com/5-fantastic-potted-plant-wedding-ideas/)
 
