@@ -3,7 +3,7 @@ title: "5 Ways to Plan an Eco-Friendly Wedding ..."
 description: "Going Green Gown...; Eco-Friendly Favors...; Going Green Registry...; Eco-Friendly Honeymoon...; Bridesmaid Gift..."
 url: "https://wedding.allwomenstalk.com/ways-to-plan-an-eco-friendly-wedding/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 5 Ways to Plan an Eco\-Friendly Wedding ...
@@ -14,15 +14,15 @@ To celebrate [Earth Day](https://www.earthday.org/)today I thought it would be a
 
 ![Going Green Gown...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/04/ecodress_443x662.jpg)
 
-Photo: [Etsy.com/shop/threadhead](https://goo.gl/AVFowS)
+Photo: [Etsy.com/shop/threadhead](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2Fthreadhead&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwest4v9f20025vh00000)
 
-The first wedding item every bride looks for right after getting engaged is her beautiful **wedding gown**. There are two ways you can plan to go **eco-friendly** with your dress. One is to buy an **all natural**, hand-made gown like this hemp and silk dress from [Threadhead](https://goo.gl/6lC13Z). The second option is to **donate your wedding gown** to [Brides Against Breast Cancer](https://www.bridesagainstbreastcancer.org/) instead of trashing it for a photo shoot or keeping it in the back of your closet.
+The first wedding item every bride looks for right after getting engaged is her beautiful **wedding gown**. There are two ways you can plan to go **eco-friendly** with your dress. One is to buy an **all natural**, hand-made gown like this hemp and silk dress from [Threadhead](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F46574697%2Fhailey-eco-friendly-wedding-dress-made&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwest4z0uw0025vh00000). The second option is to **donate your wedding gown** to [Brides Against Breast Cancer](https://www.bridesagainstbreastcancer.org/) instead of trashing it for a photo shoot or keeping it in the back of your closet.
 
 ## 4. Eco-Friendly Favors...
 
 ![Eco-Friendly Favors...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/04/personalized-plantable-seed-card-favors-500_442x442.jpg)
 
-Photo: [Beau-Coup](https://goo.gl/WGwHuo)
+Photo: [Beau-Coup](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.beau-coup.com%2Fpersonalized-seed-cards.htm&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwest4z9al0025vh00000)
 
 **Wedding favors** have come a long way from the silly items guests would throw out or toss to the side. Go green with your favors and place settings with these **personalized seed cards** and put a little love back into the earth.
 
@@ -46,16 +46,16 @@ You can do more than just make your wedding day eco-friendly, now you can go on 
 
 ## Related Posts
 
+- [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
+- [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
+- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
 - [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
+- [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
+- [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
+- [loreal stylo enchanted](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
+- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
 - [7 Reasons to Hire a Wedding Planner ...](https://wedding.allwomenstalk.com/7-reasons-to-hire-a-wedding-planner/)
 - [8 Ideas on How to Make Your Wedding a Memorable Ev...](https://wedding.allwomenstalk.com/8-ideas-on-how-to-make-your-wedding-a-memorable-event/)
-- [loreal stylo enchanted](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
-- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
-- [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
-- [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
-- [who should be your maid of honor](https://wedding.allwomenstalk.com/8-tips-on-choosing-a-maid-of-honor/)
-- [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
-- [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
 - [5 Ways to Find Ideas outside the Wedding Box ...](https://wedding.allwomenstalk.com/5-ways-to-find-ideas-outside-the-wedding-box/)
 - [5 Creative Ways to save the Date ...](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 
