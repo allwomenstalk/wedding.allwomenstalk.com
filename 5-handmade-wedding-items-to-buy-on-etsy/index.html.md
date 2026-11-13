@@ -3,61 +3,61 @@ title: "5 Handmade Wedding Items to Buy on Etsy ..."
 description: "For Your Rings...; A Gift for Your Bridesmaids...; Handmade GuestBook...; Going Green Favors..."
 url: "https://wedding.allwomenstalk.com/5-handmade-wedding-items-to-buy-on-etsy/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 5 Handmade Wedding Items to Buy on Etsy ...
 
-Many couples want to have a **DIY wedding** but just don't have the time for all the creative work it takes to make your own wedding details. Check out these **5 Wedding Items** from [Etsy](https://goo.gl/cQyi0F) to keep that **handmade**, creative look for your wedding while skipping all the DIY sweat and tears!
+Many couples want to have a **DIY wedding** but just don't have the time for all the creative work it takes to make your own wedding details. Check out these **5 Wedding Items** from [Etsy](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsddtb0025vh00000) to keep that **handmade**, creative look for your wedding while skipping all the DIY sweat and tears!
 
 ## 5. For Your Rings...
 
 ![For Your Rings...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2010/12/idopillow_402x366.jpg)
 
-Photo: [Etsy.com/shop/Braggingbags](https://goo.gl/ocqnlZ)
+Photo: [Etsy.com/shop/Braggingbags](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2Fbraggingbags%3Fref%3Dtop_trail&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfs9b260025vh00000)
 
-**Simple, Pretty, and Sweet.** There are many **ring pillows **out there to choose from but many of the store bought ones need a bit of an update. [This beautiful pillow](https://goo.gl/DQKRc8)has a **vintage** look but also has a **modern DIY **feel to it. Made from **burlap** and tied with **twine**; the perfect [accessory](https://wedding.allwomenstalk.com/5-lovely-bridal-accessories-in-hot-metallic-colors/) for your **outdoor**, **rustic wedding**. Rustic with a touch of sweetness with the **delicate woodland roses** that remind me of [Ranunculus](https://www.marthastewart.com/7897629/beautiful-wedding-ideas-use-ranunculus).
+**Simple, Pretty, and Sweet.** There are many **ring pillows **out there to choose from but many of the store bought ones need a bit of an update. [This beautiful pillow](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F57178095%2Fyou-pick-the-colors-custom-personalized&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsdm3e0025vh00000)has a **vintage** look but also has a **modern DIY **feel to it. Made from **burlap** and tied with **twine**; the perfect [accessory](https://wedding.allwomenstalk.com/5-lovely-bridal-accessories-in-hot-metallic-colors/) for your **outdoor**, **rustic wedding**. Rustic with a touch of sweetness with the **delicate woodland roses** that remind me of [Ranunculus](https://www.marthastewart.com/7897629/beautiful-wedding-ideas-use-ranunculus).
 
 **4. Something for the Flower Girl...**
 
 ![For Your Rings...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2010/12/flowergirl_401x553.jpg)
 
-Photo: [Etsy.com/shop/AprilHilerDesigns](https://goo.gl/sSJ2lm)
+Photo: [Etsy.com/shop/AprilHilerDesigns](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2FAprilHilerDesigns%3Fref%3Dtop_trail&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsdl5c0025vh00000)
 
-Bring the **outdoors** inside with this beautiful **handmade** [flower girl basket](https://goo.gl/ZRRiCW). I love the **moss** and **pinecones**, perfect for a **winter** or [Christmas wedding](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/). Your flower girl will be so impressed with this basket she'll want to take it home to carry around all her little dolls! Check out the [Etsy shop](https://goo.gl/2qYBrb) for an adorable matching ring bearer pillow! **What will your beautiful flower girl carry down the aisle? **
+Bring the **outdoors** inside with this beautiful **handmade** [flower girl basket](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F58278105%2Frustic-twig-winter-christmas-wedding&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfs9tew0025vh00000). I love the **moss** and **pinecones**, perfect for a **winter** or [Christmas wedding](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/). Your flower girl will be so impressed with this basket she'll want to take it home to carry around all her little dolls! Check out the [Etsy shop](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F62652506%2Fnatural-moss-christmas-winter-wedding&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfse04d0025vh00000) for an adorable matching ring bearer pillow! **What will your beautiful flower girl carry down the aisle? **
 
 ## 3. A Gift for Your Bridesmaids...
 
 ![A Gift for Your Bridesmaids...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2010/12/masonjar_404x525.jpg)
 
-Photo: [Etsy.com/shop/SimplyDivineDesserts](https://goo.gl/aM4yxp)
+Photo: [Etsy.com/shop/SimplyDivineDesserts](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2FSimplyDivineDesserts%3Fref%3Dtop_trail&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsrl1f0025vh00000)
 
-A **tasty**, creative [gift](https://allwomenstalk.com/20-best-inexpensive-gifts-for-women/) for your **bridesmaids**, **mother**, or soon-to-be **mother-in-law**. I was inspired by **Jacin** at [SheSaidYes](https://goo.gl/kOa7N1) blog for her love of **mason jars **when I searched [Etsy](https://goo.gl/CBwJR7) for the perfect gift! I love these [recipes in a jar](https://web.archive.org/web/https://dish.allrecipes.com/tips-for-cookie-and-brownie-mix-in-a-jar/)and so will everyone you share them with. This mason jar includes all the dry ingredients and instructions needed to make delicious **butterscotch cookies**. **What gift will you surprise your favorite ladies with?**
+A **tasty**, creative [gift](https://allwomenstalk.com/20-best-inexpensive-gifts-for-women/) for your **bridesmaids**, **mother**, or soon-to-be **mother-in-law**. I was inspired by **Jacin** at [SheSaidYes](https://accounts.google.com/v3/signin/identifier?continue=https://draft.blogger.com/blogin?u%3Dhttps://jacinandpat.blogspot.com/search/label/mason%252520jars&followup=https://draft.blogger.com/blogin?u%3Dhttps://jacinandpat.blogspot.com/search/label/mason%252520jars&passive=1209600&flowName=WebLiteSignIn&flowEntry=ServiceLogin&dsh=S86639944:1794562938487843) blog for her love of **mason jars **when I searched [Etsy](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F54739593%2Fbutterscotch-cookies-mix-in-a-jar&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsr98l0025vh00000) for the perfect gift! I love these [recipes in a jar](https://web.archive.org/web/https://dish.allrecipes.com/tips-for-cookie-and-brownie-mix-in-a-jar/)and so will everyone you share them with. This mason jar includes all the dry ingredients and instructions needed to make delicious **butterscotch cookies**. **What gift will you surprise your favorite ladies with?**
 
 ## 2. Handmade GuestBook...
 
-**Touching, Thoughtful, and Personal**. This[beautiful artwork](https://goo.gl/Y5aqTc)makes for a wonderful gift for the **bride** and **groom**, but it would also be a **unique guestbook**that everyone can sign. What a great memory to have displayed in your home with your names, wedding date, and signatures of all your loved ones who shared your **special day** with you. Are you[thinking out of the box](https://wedding.allwomenstalk.com/5-ways-to-find-ideas-outside-the-wedding-box/) for your guestbook?
+**Touching, Thoughtful, and Personal**. This[beautiful artwork](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F62151069%2Fwinter-birch-personalized-honey-tree&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsr9w80025vh00000)makes for a wonderful gift for the **bride** and **groom**, but it would also be a **unique guestbook**that everyone can sign. What a great memory to have displayed in your home with your names, wedding date, and signatures of all your loved ones who shared your **special day** with you. Are you[thinking out of the box](https://wedding.allwomenstalk.com/5-ways-to-find-ideas-outside-the-wedding-box/) for your guestbook?
 
 ## 1. Going Green Favors...
 
-**Go green** and make your guests smile with these fun [seed bombs](https://goo.gl/cHE5g9) for your **wedding favor**. Many couples are **going green** with their wedding details and [favors](https://allwomenstalk.com/7-diy-wedding-favors/). I've seen **brides** and **grooms** who have [planted a tree](https://plantamemory.com/) in lieu of favors, [given to charities](https://www.topweddingsites.com/wedding-blog/wedding-favors/donation-in-lieu-of-a-wedding-favor), or asked their guests to donate to their [favorite organizations](https://www.alexslemonade.org/). This **favor** is green and **useful** as your guests can use the plants in their cooking! **Will you give a favor that will last forever?**
+**Go green** and make your guests smile with these fun [seed bombs](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F63424406%2Fherb-seed-bombs-for-an-edible-indoor-or&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsprx20025vh00000) for your **wedding favor**. Many couples are **going green** with their wedding details and [favors](https://allwomenstalk.com/7-diy-wedding-favors/). I've seen **brides** and **grooms** who have [planted a tree](https://plantamemory.com/) in lieu of favors, [given to charities](https://www.topweddingsites.com/wedding-blog/wedding-favors/donation-in-lieu-of-a-wedding-favor), or asked their guests to donate to their [favorite organizations](https://www.alexslemonade.org/). This **favor** is green and **useful** as your guests can use the plants in their cooking! **Will you give a favor that will last forever?**
 
 **Did you shop on Etsy for your favorite wedding items?**
 
-Top Photo: [Etsy.com/shop/AmyJoTatumBridal](https://goo.gl/2j3qXS)
+Top Photo: [Etsy.com/shop/AmyJoTatumBridal](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2FAmyJoTatumBridal%3Fref%3Dtop_trail&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfstikp0025vh00000)
 
 ## Related Posts
 
-- [5 Tips on Technology and Wedding Planning ...](https://wedding.allwomenstalk.com/tips-on-technology-and-wedding-planning/)
+- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
+- [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
+- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
 - [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
-- [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
+- [5 Tips on Technology and Wedding Planning ...](https://wedding.allwomenstalk.com/tips-on-technology-and-wedding-planning/)
 - [Engagement Shoot: Forever Friends ...](https://wedding.allwomenstalk.com/engagement-shoot-forever-friends/)
 - [type of wedding themes](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
-- [Being a plus Size Bridesmaid: Guest Blogger the Pr...](https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/)
 - [romantic ideas for women](https://wedding.allwomenstalk.com/5-romantic-ideas-for-a-valentines-day-wedding/)
+- [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
 - [funny baby shower themes](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)
-- [garden theme wedding](https://wedding.allwomenstalk.com/4-lovely-weddings-to-inspire-your-garden-theme/)
-- [unusual save the date ideas](https://wedding.allwomenstalk.com/5-creative-ways-to-save-the-date/)
 - [4 Etsy Totes for Your Wedding That Give Back ...](https://wedding.allwomenstalk.com/4-etsy-totes-for-your-wedding-that-give-back/)
 - [5 Cool Outdoor Accessories for Your Garden ...](https://gardening.allwomenstalk.com/5-cool-outdoor-accessories-for-your-garden/)
 
