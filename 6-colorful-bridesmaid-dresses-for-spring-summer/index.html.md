@@ -3,7 +3,7 @@ title: "6 Colorful Bridesmaid Dresses for Spring & Summer ..."
 description: "Yellow as the Sun...; Slip into Sangria...; Put the Lime in...; Lemon Zest...; Red Hot..."
 url: "https://wedding.allwomenstalk.com/6-colorful-bridesmaid-dresses-for-spring-summer/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 6 Colorful Bridesmaid Dresses for Spring & Summer ...
@@ -15,9 +15,9 @@ The sun is coming back to the Northeast next week...50 degrees is a good winter 
 ![Yellow as the Sun...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/02/davidsbridal2_417x557.jpg)
 
 Photo: [Fashionablebride](https://web.archive.org/web/https://www.fashionablebride.com/fashiontrends/Bridesmaid-Evening)
-Dress: [DavidsBridal](https://goo.gl/C5wFon)
+Dress: [DavidsBridal](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.davidsbridal.com%2FProduct_Strapless-Lace-Dress-with-Floral-Embellishment-F14166_Bridal-Party-Bridesmaids-All-Bridesmaid-Dresses&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesm3rp9u0025vh00000)
 
-Have you ever seen a bridesmaid dress as cute as this one! I just adore the **yellow lace** and haven't seen a [lace bridesmaid dress](https://goo.gl/C5wFon)before, if you know of one point me in the right direction. Everything about this dress is just so adorable; the **sweetheart neckline**, the tea length, and the **floral accents** on the waistband. Cute, cute, cute!
+Have you ever seen a bridesmaid dress as cute as this one! I just adore the **yellow lace** and haven't seen a [lace bridesmaid dress](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.davidsbridal.com%2FProduct_Strapless-Lace-Dress-with-Floral-Embellishment-F14166_Bridal-Party-Bridesmaids-All-Bridesmaid-Dresses&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesm3rp9u0025vh00000)before, if you know of one point me in the right direction. Everything about this dress is just so adorable; the **sweetheart neckline**, the tea length, and the **floral accents** on the waistband. Cute, cute, cute!
 
 ## 5. Slip into Sangria...
 
@@ -70,16 +70,16 @@ I just love the **pleating** on this stunning purple cocktail **bridesmaid dress
 
 ## Related Posts
 
-- [7 Bridal Fashion Tips for Stylish Brides ...](https://wedding.allwomenstalk.com/bridal-fashion-tips-for-stylish-brides/)
-- [all brides beautiful](https://wedding.allwomenstalk.com/6-wedding-dresses-for-every-brides-beautiful-body/)
-- [bhldn bridal gowns](https://wedding.allwomenstalk.com/5-lovely-bridal-gowns-from-bhldn/)
 - [5 Ready to Wear Looks for the Bride ...](https://wedding.allwomenstalk.com/5-ready-to-wear-looks-for-the-bride/)
-- [best wedding cocktail dresses](https://wedding.allwomenstalk.com/wonderful-cocktail-dresses-to-wear-to-a-chic-day-wedding/)
-- [gown sketches](https://wedding.allwomenstalk.com/7-designer-bridal-gown-sketches-for-kate-middleton/)
 - [inspire bridal](https://wedding.allwomenstalk.com/5-wedding-dresses-to-inspire-your-inner-princess/)
-- [sparkling wedding gown](https://wedding.allwomenstalk.com/4-sparkly-wedding-gowns-that-will-keep-you-shining/)
+- [bhldn bridal gowns](https://wedding.allwomenstalk.com/5-lovely-bridal-gowns-from-bhldn/)
+- [best wedding cocktail dresses](https://wedding.allwomenstalk.com/wonderful-cocktail-dresses-to-wear-to-a-chic-day-wedding/)
 - [the winner mother of the bride dresses](https://wedding.allwomenstalk.com/7-gorgeous-dresses-for-the-mother-of-the-bride/)
+- [7 Bridal Fashion Tips for Stylish Brides ...](https://wedding.allwomenstalk.com/bridal-fashion-tips-for-stylish-brides/)
+- [gown sketches](https://wedding.allwomenstalk.com/7-designer-bridal-gown-sketches-for-kate-middleton/)
+- [all brides beautiful](https://wedding.allwomenstalk.com/6-wedding-dresses-for-every-brides-beautiful-body/)
 - [alternatives to a wedding dress](https://wedding.allwomenstalk.com/7-wedding-dress-alternatives/)
+- [sparkling wedding gown](https://wedding.allwomenstalk.com/4-sparkly-wedding-gowns-that-will-keep-you-shining/)
 - [5 Hot Dresses for Every Spring 2011 Bridesmaid ...](https://wedding.allwomenstalk.com/hot-dresses-for-every-spring-bridesmaid/)
 - [6 Maxi Dresses to Wear to a Beach Wedding ...](https://fashion.allwomenstalk.com/maxi-dresses-to-wear-to-a-beach-wedding/)
 
