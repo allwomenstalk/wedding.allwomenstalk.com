@@ -3,14 +3,14 @@ title: "Favourite Weddings: Guest Blogger Diana from Express-O ..."
 description: "Destination Wedding...; Outdoor Wedding...; French Wedding...; City Hall Love..."
 url: "https://wedding.allwomenstalk.com/favourite-weddings-guest-blogger-diana-from-express-o/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Favourite Weddings: Guest Blogger Diana from Express\-O ...
 
-One of my new friends, who is so amazing and kind, has come by today to give us some of her favorite weddings and details that make them so likable. Diana from [Express-O](https://goo.gl/79kaoL) has become more than just a blogger with a great blog to read, she has become a friend who always has kind things to say and always comes back for a visit. Check out these gorgeous weddings and you'll see why I love her so much...
+One of my new friends, who is so amazing and kind, has come by today to give us some of her favorite weddings and details that make them so likable. Diana from [Express-O](https://accounts.google.com/v3/signin/identifier?continue=https://www.blogger.com/blogin?u%3Dhttp://diana212m.blogspot.com/&followup=https://www.blogger.com/blogin?u%3Dhttp://diana212m.blogspot.com/&passive=1209600&flowName=WebLiteSignIn&flowEntry=ServiceLogin&dsh=S-1002685156:1794563510396070) has become more than just a blogger with a great blog to read, she has become a friend who always has kind things to say and always comes back for a visit. Check out these gorgeous weddings and you'll see why I love her so much...
 Personal and Intimate...
-Hello, I’m Diana from [ExPress-o](https://goo.gl/79kaoL) and I’m so excited and honored to guest post for Diana today about a few of my** favourite weddings** that I’m completely smitten with! Here we go!
+Hello, I’m Diana from [ExPress-o](https://accounts.google.com/v3/signin/identifier?continue=https://www.blogger.com/blogin?u%3Dhttp://diana212m.blogspot.com/&followup=https://www.blogger.com/blogin?u%3Dhttp://diana212m.blogspot.com/&passive=1209600&flowName=WebLiteSignIn&flowEntry=ServiceLogin&dsh=S-1002685156:1794563510396070) and I’m so excited and honored to guest post for Diana today about a few of my** favourite weddings** that I’m completely smitten with! Here we go!
 
 As much as I like big, grand and traditional ceremonies, I also adore when couples go with more **intimate** and **personal** themes that truly show off their personality without loosing on the wow factor. Here are four different weddings that share a common feature of being **unique**, intimate but still very **emotionally grand**!
 
@@ -24,7 +24,7 @@ As much as I like big, grand and traditional ceremonies, I also adore when coupl
 
 Photos: [Ruffledblog](https://ruffledblog.com/small-intimate-wedding-in-iceland/)
 
-Let’s start with a far away **destination wedding**. If you ever read my blog before you know that I love all things [Iceland](https://goo.gl/E3rKjg)and this brave couple flew their closest family members for an intimate ceremony to an [Icelandic chapel](https://ruffledblog.com/small-intimate-wedding-in-iceland/). Sweet, personal and oh so beautiful! How is this for a magical scenario?
+Let’s start with a far away **destination wedding**. If you ever read my blog before you know that I love all things Icelandand this brave couple flew their closest family members for an intimate ceremony to an [Icelandic chapel](https://ruffledblog.com/small-intimate-wedding-in-iceland/). Sweet, personal and oh so beautiful! How is this for a magical scenario?
 
 ## 2. Outdoor Wedding...
 
@@ -36,7 +36,7 @@ Let’s start with a far away **destination wedding**. If you ever read my blog 
 
 Photos: [GreenWeddingShoes](https://web.archive.org/web/https://greenweddingshoes.com/real-wedding-zena-lances-sweet-san-francisco-wedding/)
 
-**Outdoor weddings** are always fun, especially in sunny [San Francisco](https://web.archive.org/web/https://greenweddingshoes.com/real-wedding-zena-lances-sweet-san-francisco-wedding/). What I adore most about this wedding is that it was a family effort with everyone helping out to create the fresh and relaxed atmosphere. And what about that hipstery short [BCBG](https://goo.gl/d7wURt) dress that Zene wore? It truly reflects her playful and easy-going personality. How do you feel about short wedding dresses? (I love them, especially in the summer!).
+**Outdoor weddings** are always fun, especially in sunny [San Francisco](https://web.archive.org/web/https://greenweddingshoes.com/real-wedding-zena-lances-sweet-san-francisco-wedding/). What I adore most about this wedding is that it was a family effort with everyone helping out to create the fresh and relaxed atmosphere. And what about that hipstery short [BCBG](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.bcbg.com%2Fhome%2Findex.jsp&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweslrkput0025vh00000) dress that Zene wore? It truly reflects her playful and easy-going personality. How do you feel about short wedding dresses? (I love them, especially in the summer!).
 
 Continue Reading for more beautiful weddings...
 
@@ -68,16 +68,16 @@ P.S: Di, thank you so much for having me today! I had a blast:) xo
 
 ## Related Posts
 
-- [pretty wedding cakes](https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/)
 - [rain on wedding day quotes](https://wedding.allwomenstalk.com/wedding-superstitions-from-around-the-world/)
-- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
 - [5 Peony Bouquets to Brighten up Your Wedding Day ....](https://wedding.allwomenstalk.com/peony-bouquets-to-brighten-up-your-wedding-day/)
-- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
 - [loreal paris color le stylo eye shadow spark](https://wedding.allwomenstalk.com/ways-to-color-your-beach-wedding/)
-- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
 - [how to plan a wedding in 3 months with a small bud...](https://wedding.allwomenstalk.com/steps-to-plan-a-wedding-in-30-days/)
-- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
 - [emmy's bridal](https://wedding.allwomenstalk.com/real-wedding-fireworks-in-ohio/)
+- [pretty wedding cakes](https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/)
+- [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
+- [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
+- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
+- [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
 - [Engagement Shoot: Forever Friends ...](https://wedding.allwomenstalk.com/engagement-shoot-forever-friends/)
 - [Inspirational Bridal Shoot: City Chic ...](https://wedding.allwomenstalk.com/inspirational-bridal-shoot-city-chic/)
 
