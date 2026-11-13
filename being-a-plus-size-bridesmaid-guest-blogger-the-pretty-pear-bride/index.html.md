@@ -3,7 +3,7 @@ title: "Being a plus Size Bridesmaid: Guest Blogger the Pretty Pear Bride ..."
 description: "I'm so happy to bring this post to you today because I know many women struggle with their beautiful shape when it comes to being a bridesmaid in a wedding…"
 url: "https://wedding.allwomenstalk.com/being-a-plus-size-bridesmaid-guest-blogger-the-pretty-pear-bride/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Being a plus Size Bridesmaid: Guest Blogger the Pretty Pear Bride ...
@@ -13,7 +13,7 @@ Finding a Bridesmaid Dress....
 
 ![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/04/bridesmaids_402x293.jpg)
 
-Photos: [DavidsBridal](https://goo.gl/pPM52n)
+Photos: [DavidsBridal](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.davidsbridal.com%2FBrowse_Bridal-Party&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwestarxwi0025vh00000)
 
 "You’ve been asked by your best friend in the whole world to be a bridesmaid and your sooo excited. Until you realize that you’re the only curvy bridesmaid in the bridal party. What do you do?
 
@@ -22,7 +22,7 @@ A Dress for All...
 
 ![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/04/bmplus_402x286.jpg)
 
-Photos: [DavidsBridal](https://goo.gl/pPM52n)
+Photos: [DavidsBridal](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.davidsbridal.com%2FBrowse_Bridal-Party&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwestarxwi0025vh00000)
 
 "First things first, you want to guide your friend in becoming more aware of styles that will enhance all body shapes and sizes. I am a plus size woman and always dreaded being asked to be in weddings. Being a curvy woman pretty much all my life, all my friends knew me as such but it is a different situation when your body type plays a part in what everyone else is wearing. Here are a few suggestions to ensure that everyone in the bridal party feel comfortable in what is picked for them to wear."
 Work Your Curves...
@@ -37,16 +37,16 @@ There are so many different types and styles of dresses. You want to help the br
 
 ## Related Posts
 
-- [type of wedding themes](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
-- [kevin and danielle jonas](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
-- [5 Tips on Technology and Wedding Planning ...](https://wedding.allwomenstalk.com/tips-on-technology-and-wedding-planning/)
-- [ginnifer goodwin beach](https://celebs.allwomenstalk.com/something-borrowed-on-the-beach/)
-- [Engagement Shoot: Forever Friends ...](https://wedding.allwomenstalk.com/engagement-shoot-forever-friends/)
-- [romantic ideas for women](https://wedding.allwomenstalk.com/5-romantic-ideas-for-a-valentines-day-wedding/)
 - [can your mom be your maid of honor](https://wedding.allwomenstalk.com/ways-to-celebrate-mom-on-your-wedding-day/)
+- [5 Tips on Technology and Wedding Planning ...](https://wedding.allwomenstalk.com/tips-on-technology-and-wedding-planning/)
+- [Engagement Shoot: Forever Friends ...](https://wedding.allwomenstalk.com/engagement-shoot-forever-friends/)
+- [type of wedding themes](https://wedding.allwomenstalk.com/exotic-wedding-themes-your-guests-will-love/)
+- [romantic ideas for women](https://wedding.allwomenstalk.com/5-romantic-ideas-for-a-valentines-day-wedding/)
 - [8 Tear-Worthy Movie Weddings ...](https://movies.allwomenstalk.com/tear-worthy-movie-weddings/)
-- [late summer wedding flowers](https://gardening.allwomenstalk.com/flowers-to-use-for-summer-wedding-bouquets/)
 - [funny baby shower themes](https://parenting.allwomenstalk.com/adorable-baby-shower-themes/)
+- [ginnifer goodwin beach](https://celebs.allwomenstalk.com/something-borrowed-on-the-beach/)
+- [kevin and danielle jonas](https://celebs.allwomenstalk.com/25-most-expensive-celebrity-weddings/)
+- [late summer wedding flowers](https://gardening.allwomenstalk.com/flowers-to-use-for-summer-wedding-bouquets/)
 - [6 Wedding Dresses for Every Bride's Beautiful Body...](https://wedding.allwomenstalk.com/6-wedding-dresses-for-every-brides-beautiful-body/)
 - [7 Gorgeous Dresses for the Mother of the Bride ...](https://wedding.allwomenstalk.com/7-gorgeous-dresses-for-the-mother-of-the-bride/)
 
