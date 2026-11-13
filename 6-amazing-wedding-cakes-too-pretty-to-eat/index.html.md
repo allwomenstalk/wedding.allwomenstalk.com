@@ -3,7 +3,7 @@ title: "6 Amazing Wedding Cakes Too Pretty to Eat!"
 description: "Perfect for a Winter Wedding...; Pretty in Pink and Teal...; Tropical Paradise...; Lovely Little Details...; Roses Are Red..."
 url: "https://wedding.allwomenstalk.com/6-amazing-wedding-cakes-too-pretty-to-eat/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 6 Amazing Wedding Cakes Too Pretty to Eat!
@@ -95,7 +95,7 @@ I loved our wedding **cake** so much that I wanted to save it forever! **Wedding
 
 **Cake: [Little Venice Cake Company](https://web.archive.org/web/https://www.lvcc.co.uk/index.asp)**
 
-**This is a true work of art** and a cake too pretty to cut into! There are no words to say how **brilliant** the **hand-painted birds** are. The bakers at [Little Venice Cake Company](https://web.archive.org/web/https://www.lvcc.co.uk/iced-wedding-cakes-detail.asp?cakeid=47)were inspired by the designs of [Alexander McQueen](https://goo.gl/W9GeyG) and **Matthew Williams**. Birds are a very popular **wedding theme** including [bird cake toppers](https://allwomenstalk.com/7-awesome-wedding-cake-toppers/), [bird invitations](https://allwomenstalk.com/8-gorgeous-wedding-invitations/), and [bird cage centerpieces](http://www.stumpsparty.com/cgi-sys/suspendedpage.cgi). Your wedding will be complete when you top your bird theme off with this amazing **too pretty to eat cake**!
+**This is a true work of art** and a cake too pretty to cut into! There are no words to say how **brilliant** the **hand-painted birds** are. The bakers at [Little Venice Cake Company](https://web.archive.org/web/https://www.lvcc.co.uk/iced-wedding-cakes-detail.asp?cakeid=47)were inspired by the designs of [Alexander McQueen](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.alexandermcqueen.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesed0coz0025vh00000) and **Matthew Williams**. Birds are a very popular **wedding theme** including [bird cake toppers](https://allwomenstalk.com/7-awesome-wedding-cake-toppers/), [bird invitations](https://allwomenstalk.com/8-gorgeous-wedding-invitations/), and [bird cage centerpieces](http://www.stumpsparty.com/cgi-sys/suspendedpage.cgi). Your wedding will be complete when you top your bird theme off with this amazing **too pretty to eat cake**!
 
 **What does your wedding cake look like? **
 
@@ -108,13 +108,13 @@ Top Image: [GreenWeddingShoes.com](https://web.archive.org/web/https://greenwedd
 
 - [marthastewart weddings](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
 - [weird weddings](https://wedding.allwomenstalk.com/7-weird-wedding-laws/)
-- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
+- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
 - [feathers wedding decorations](https://wedding.allwomenstalk.com/4-inspiring-decor-ideas-birds-of-a-wedding-feather/)
 - [beach wedding decoration ideas](https://wedding.allwomenstalk.com/3-wedding-decor-ideas-kissing-in-the-kitchen/)
-- [simple tropical wedding bouquet](https://wedding.allwomenstalk.com/4-sweet-simple-wedding-bouquets/)
-- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [naughty wedding photo ideas](https://wedding.allwomenstalk.com/7-ideas-for-your-trash-the-dress-photo-shoot/)
 - [7 Amazing Wedding Cake Designs ...](https://baking.allwomenstalk.com/7-amazing-wedding-cake-designs/)
+- [bride to be presents](https://wedding.allwomenstalk.com/presents-for-a-bride-to-be/)
+- [dog walking down the aisle](https://wedding.allwomenstalk.com/5-reasons-to-have-your-dog-in-your-wedding/)
 - [8 Advantages of a Winter Wedding …](https://wedding.allwomenstalk.com/8-advantages-of-a-winter-wedding/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [5 Awesome Cakes Your Groom Will Love ...](https://wedding.allwomenstalk.com/5-awesome-cakes-your-groom-will-love/)
