@@ -3,7 +3,7 @@ title: "3 Vintage Inspired Wedding Looks ..."
 description: "Pink and Vintage Lace...; Hippie Chic...; Old & New..."
 url: "https://wedding.allwomenstalk.com/3-vintage-inspired-wedding-looks/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 3 Vintage Inspired Wedding Looks ...
@@ -16,15 +16,15 @@ last_updated: "2026-11-10"
 
 Photos by: [Gabriella New York Bridal Salon](https://www.weddingwire.com/biz/gabriella-new-york-bridal-salon-new-york/cabb0ae8883c5cf4.html), [Something Jeweled](https://www.weddingwire.ca/wedding-accessories/something-jeweled--e3230), [Avery House](https://www.weddingwire.com/biz/averyhouse-chicago/edb16f4db8d066a9.html), [Events by I Candy](https://www.weddingwire.com/biz/events-by-i-candy-wyoming/cfe1bcf590411083.html), [Blue Lotus Floral](https://www.weddingwire.com/c/tx-texas/dallas-ft-worth-wichita-falls/wedding-florists/623-8-rca.html), [Sweet Emilia Jane](https://www.weddingwire.com/biz/sweet-emilia-jane-los-angeles/1b554e27fc43c9d7.html), [You Are My Sunshine](https://www.weddingwire.com/c/fl-florida/jacksonville-brunswick/wedding-jewelers/561-19-rca.html), [Etsy](https://goo.gl/DZyhbk)
 
-**Vintage**, Pink, [Pearls](https://allwomenstalk.com/7-best-necklaces-for-your-wedding/), and **Lace**, what more could a **girly girl **ask for? Old doesn't mean ugly any more. There are wonderful finds on [Etsy](https://goo.gl/cQyi0F) and in [thrift stores](https://www.thethriftshopper.com/) right in your own neighborhood. I found the most beautiful **1950s** white lace prom dress that could have easily been turned into a **bridal gown **with the right **accessories**! I was in love! Where did you find your **vintage wedding decor? **
+**Vintage**, Pink, [Pearls](https://allwomenstalk.com/7-best-necklaces-for-your-wedding/), and **Lace**, what more could a **girly girl **ask for? Old doesn't mean ugly any more. There are wonderful finds on [Etsy](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesfsddtb0025vh00000) and in [thrift stores](https://www.thethriftshopper.com/) right in your own neighborhood. I found the most beautiful **1950s** white lace prom dress that could have easily been turned into a **bridal gown **with the right **accessories**! I was in love! Where did you find your **vintage wedding decor? **
 
 ## 2. Hippie Chic...
 
 ![Hippie Chic...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/ql/sr/vtbirdaq54c8ec7ea864f557169819_400x400.jpg)
 
-Photos by: [Maria Glassford Photography](https://www.weddingwire.com/biz/maria-glassford-photography-bonita-springs/4458a55d6dc7ce1b.html), [Wedding Paper Divas](https://www.weddingwire.com/c/ca-california/san-francisco-san-jose-oakland/wedding-invitations/807-18-rca.html), [XSIGHT Photography & Video](https://www.weddingwire.com/biz/xsight-photography-video-sacramento/e09be81fe116f583.html), [Katy Carrier Events](https://www.weddingwire.com/c/ca-california/los-angeles-county/wedding-planners/803A-15-rca.html), [Etsy](http://www.etsy.com?ref=allwomenstalk.com), [RuffledBlog](https://ruffledblog.com/), [Etsy](https://goo.gl/YF1e0Z)
+Photos by: [Maria Glassford Photography](https://www.weddingwire.com/biz/maria-glassford-photography-bonita-springs/4458a55d6dc7ce1b.html), [Wedding Paper Divas](https://www.weddingwire.com/c/ca-california/san-francisco-san-jose-oakland/wedding-invitations/807-18-rca.html), [XSIGHT Photography & Video](https://www.weddingwire.com/biz/xsight-photography-video-sacramento/e09be81fe116f583.html), [Katy Carrier Events](https://www.weddingwire.com/c/ca-california/los-angeles-county/wedding-planners/803A-15-rca.html), [Etsy](http://www.etsy.com?ref=allwomenstalk.com), [RuffledBlog](https://ruffledblog.com/), [Etsy](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F54066674%2Fqueen-of-the-woods-natural-crown-white&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesiclqdl0025vh00000)
 
-This is **vintage** with a **hippie** twist! For those of us who wished we lived in the [1960s and 70s](https://en.wikipedia.org/wiki/History_of_the_hippie_movement) here are several ways to relive that era and feel the[flower power](https://wedding.allwomenstalk.com/5-lovely-bridal-accessories-in-hot-metallic-colors/) on your big day! I just love the **gown** from [Esty](http://www.etsy.com?ref=allwomenstalk.com) and see the girl in the [flower headband](https://goo.gl/YF1e0Z) rocking it down the aisle. Who wouldn't love to **rent** a [VW van](https://web.archive.org/web/http://www.vwsurfari.com/) and drive away feeling like one** cool hippie bride and groom**! Are you a hippie chick and dude planning a vintage wedding?
+This is **vintage** with a **hippie** twist! For those of us who wished we lived in the [1960s and 70s](https://en.wikipedia.org/wiki/History_of_the_hippie_movement) here are several ways to relive that era and feel the[flower power](https://wedding.allwomenstalk.com/5-lovely-bridal-accessories-in-hot-metallic-colors/) on your big day! I just love the **gown** from [Esty](http://www.etsy.com?ref=allwomenstalk.com) and see the girl in the [flower headband](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Flisting%2F54066674%2Fqueen-of-the-woods-natural-crown-white&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesiclqdl0025vh00000) rocking it down the aisle. Who wouldn't love to **rent** a [VW van](https://web.archive.org/web/http://www.vwsurfari.com/) and drive away feeling like one** cool hippie bride and groom**! Are you a hippie chick and dude planning a vintage wedding?
 
 ## 1. Old & New...
 
@@ -40,16 +40,16 @@ Top Photo: [RuffledBlog.com](https://ruffledblog.com/)
 
 ## Related Posts
 
-- [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
 - [A Quirky and Romantic Engagement Shoot: TinyWater ...](https://wedding.allwomenstalk.com/a-quirky-and-romantic-engagement-shoot-tinywater-photography/)
 - [Real Wedding: Get Your Party on in New Jersey!](https://wedding.allwomenstalk.com/real-wedding-get-your-party-on-in-new-jersey/)
-- [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
-- [5 Ways to Plan an Eco-Friendly Wedding ...](https://wedding.allwomenstalk.com/ways-to-plan-an-eco-friendly-wedding/)
-- [how to pick a bridesmaid](https://wedding.allwomenstalk.com/5-ways-to-choose-your-bridesmaids/)
+- [5 Wedding Inspiration Ideas: Cities Full of Life ....](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-cities-full-of-life/)
 - [Real Wedding: Playful & Romantic in Sacramento ...](https://wedding.allwomenstalk.com/real-wedding-playful-romantic-in-sacramento/)
+- [how to pick a bridesmaid](https://wedding.allwomenstalk.com/5-ways-to-choose-your-bridesmaids/)
+- [5 Ways to Plan an Eco-Friendly Wedding ...](https://wedding.allwomenstalk.com/ways-to-plan-an-eco-friendly-wedding/)
+- [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
+- [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
 - [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
 - [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
-- [5 Wedding Inspiration Ideas: Cities Full of Life ....](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-cities-full-of-life/)
 - [3 Hot Color Palette Trends for Your 2011 Wedding ....](https://wedding.allwomenstalk.com/hot-color-palette-trends-for-your-wedding/)
 - [4 Sexy Hairstyles to Create on Your Wedding Day .....](https://wedding.allwomenstalk.com/4-sexy-hairstyles-to-create-on-your-wedding-day/)
 
