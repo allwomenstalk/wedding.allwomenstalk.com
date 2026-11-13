@@ -3,7 +3,7 @@ title: "5 Brides Who Know How to Rock a Non-Traditional Wedding Dress ..."
 description: "Retro Inspired...; Mellow Yellow...; The Colorful Bride...; Blue Moon...; The Brides Wore Pink..."
 url: "https://wedding.allwomenstalk.com/5-brides-who-know-how-to-rock-a-non-traditional-wedding-dress/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 5 Brides Who Know How to Rock a Non\-Traditional Wedding Dress ...
@@ -43,7 +43,7 @@ Carroll and her husband Dan wanted their day to truly be about who they were and
 Photo: [OffbeatBride](https://offbeatbride.com/monday-montage-blue-wedding/)
 Dress: Vintage
 
-When you're a [crafty bride](https://goo.gl/liI6kl)you know you're going to [celebrate](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)a **unique wedding** and wear a **one of a kind wedding dress**. For their [library reception](https://www.grandmaraislibrary.org/), Jessica wore a beautiful** blue polka-dot vintage dress** and changed into another blue vintage dress for their reception at the [Tarnish & Gold](https://tarnishandgold.wordpress.com/) art gallery. I love her **yellow crinoline**, which was made by [ReSashay](https://offbeatbride.com/), it looks perfect with her **blue dress**.
+When you're a [crafty bride](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2FPlushroomSoup&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesk57cz00025vh00000)you know you're going to [celebrate](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)a **unique wedding** and wear a **one of a kind wedding dress**. For their [library reception](https://www.grandmaraislibrary.org/), Jessica wore a beautiful** blue polka-dot vintage dress** and changed into another blue vintage dress for their reception at the [Tarnish & Gold](https://tarnishandgold.wordpress.com/) art gallery. I love her **yellow crinoline**, which was made by [ReSashay](https://offbeatbride.com/), it looks perfect with her **blue dress**.
 
 ## 1. The Brides Wore Pink...
 
@@ -59,16 +59,16 @@ I just love how these two beautiful brides **coordinated their **pink** and whit
 
 ## Related Posts
 
-- [colorful bridesmaids](https://wedding.allwomenstalk.com/6-colorful-bridesmaid-dresses-for-spring-summer/)
-- [best wedding cocktail dresses](https://wedding.allwomenstalk.com/wonderful-cocktail-dresses-to-wear-to-a-chic-day-wedding/)
-- [white by vera wang black dress](https://wedding.allwomenstalk.com/lovely-white-by-vera-wang-bridesmaid-dresses/)
-- [7 Bridal Fashion Tips for Stylish Brides ...](https://wedding.allwomenstalk.com/bridal-fashion-tips-for-stylish-brides/)
-- [bhldn bow dress](https://wedding.allwomenstalk.com/new-bridal-gowns-from-bhldn/)
 - [kendall k beach](https://wedding.allwomenstalk.com/5-kendall-k-outfits-for-your-engagement-shoot/)
-- [inspire bridal](https://wedding.allwomenstalk.com/5-wedding-dresses-to-inspire-your-inner-princess/)
+- [bhldn bow dress](https://wedding.allwomenstalk.com/new-bridal-gowns-from-bhldn/)
+- [white by vera wang black dress](https://wedding.allwomenstalk.com/lovely-white-by-vera-wang-bridesmaid-dresses/)
+- [colorful bridesmaids](https://wedding.allwomenstalk.com/6-colorful-bridesmaid-dresses-for-spring-summer/)
 - [5 Ready to Wear Looks for the Bride ...](https://wedding.allwomenstalk.com/5-ready-to-wear-looks-for-the-bride/)
+- [inspire bridal](https://wedding.allwomenstalk.com/5-wedding-dresses-to-inspire-your-inner-princess/)
 - [bhldn bridal gowns](https://wedding.allwomenstalk.com/5-lovely-bridal-gowns-from-bhldn/)
+- [best wedding cocktail dresses](https://wedding.allwomenstalk.com/wonderful-cocktail-dresses-to-wear-to-a-chic-day-wedding/)
 - [the winner mother of the bride dresses](https://wedding.allwomenstalk.com/7-gorgeous-dresses-for-the-mother-of-the-bride/)
+- [7 Bridal Fashion Tips for Stylish Brides ...](https://wedding.allwomenstalk.com/bridal-fashion-tips-for-stylish-brides/)
 - [5 High Heels to Spice up Your Wedding ...](https://wedding.allwomenstalk.com/5-high-heels-to-spice-up-your-wedding/)
 - [5 Real Brides That Will Catch Your Eye ...](https://wedding.allwomenstalk.com/5-real-brides-that-will-catch-your-eye/)
 
