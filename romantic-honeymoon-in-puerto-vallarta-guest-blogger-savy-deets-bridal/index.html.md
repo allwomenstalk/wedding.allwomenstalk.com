@@ -3,7 +3,7 @@ title: "Romantic Honeymoon in Puerto Vallarta: Guest Blogger Savy Deets Bridal .
 description: "Do Your Research...; The Resort...; Relax & Enjoy...; Go Back for More..."
 url: "https://wedding.allwomenstalk.com/romantic-honeymoon-in-puerto-vallarta-guest-blogger-savy-deets-bridal/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Romantic Honeymoon in Puerto Vallarta: Guest Blogger Savy Deets Bridal ...
@@ -21,9 +21,9 @@ Photo: [SavyDeetsBridal](https://web.archive.org/web/https://savvydeetsbridal.bl
 **Mexican sunsets**, hammocks made for two swaying in the **ocean breeze**,
 a **candlelit dinner for two** on the beach, a beautiful resort flanked by cliffs....it must be a **Honeymoon in Puerto Vallarta**.
 
-We chose to stay at [Dreams Puerto Vallarta](https://www.amrcollection.com/drepv/), and had spent **3 weeks of research** to decide to go with this porperty. Myself coming from a travel industry background, I fished out places we didn't want to go with, and made of list of the desired options. Further research of reviews and the like pin pointed to [Dreams](https://www.amrcollection.com/index.html)and it won in a landslide! We are so glad we made this decision. We booked with [Apple Vacations](https://goo.gl/YQAz9n), which I promote a lot because they are an excellent company to work with when **planning vacations**. We didn't have to pay all upfront either, we paid for air and a deposit on the "land" package, and then made monthly installments until it was paid in full. We appreciated this, as we were planning our wedding afterall, and not having to put the whole amount up front furthered our committing to the package.
+We chose to stay at [Dreams Puerto Vallarta](https://www.amrcollection.com/drepv/), and had spent **3 weeks of research** to decide to go with this porperty. Myself coming from a travel industry background, I fished out places we didn't want to go with, and made of list of the desired options. Further research of reviews and the like pin pointed to [Dreams](https://www.amrcollection.com/index.html)and it won in a landslide! We are so glad we made this decision. We booked with [Apple Vacations](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.applevacations.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweskvfi6h0025vh00000), which I promote a lot because they are an excellent company to work with when **planning vacations**. We didn't have to pay all upfront either, we paid for air and a deposit on the "land" package, and then made monthly installments until it was paid in full. We appreciated this, as we were planning our wedding afterall, and not having to put the whole amount up front furthered our committing to the package.
 
-The nice thing about the **resort** is they had a **car service** waiting for us at the **airport**, we just had to not talk to do the** timeshare sharks** at the exit doors-oh they are there, teeth gnashing, greedy buggers! There is no surgar coating going through that mess and maze, we did get lured into a conversation, and then I saw the [Apple Vacations](https://goo.gl/YQAz9n)reps hanging outside the airport, and we escaped! From there, it was smooth sailing!
+The nice thing about the **resort** is they had a **car service** waiting for us at the **airport**, we just had to not talk to do the** timeshare sharks** at the exit doors-oh they are there, teeth gnashing, greedy buggers! There is no surgar coating going through that mess and maze, we did get lured into a conversation, and then I saw the [Apple Vacations](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.applevacations.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweskvfi6h0025vh00000)reps hanging outside the airport, and we escaped! From there, it was smooth sailing!
 
 ## 3. The Resort...
 
@@ -64,16 +64,16 @@ Small change for **tipping** is nice, especially at the nicer restaurants.
 
 ## Related Posts
 
-- [8 Best Movie Destinations to Visit ...](https://travel.allwomenstalk.com/best-movie-destinations-to-visit/)
-- [european vacations on a budget](https://travel.allwomenstalk.com/cheap-european-vacation-ideas-that-will-save-you-thousands/)
-- [small towns with beaches](https://travel.allwomenstalk.com/terrific-little-beach-towns-in-america/)
 - [7 Top Honeymoon Destinations ...](https://wedding.allwomenstalk.com/7-top-honeymoon-destinations/)
+- [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
 - [adventurist air](https://travel.allwomenstalk.com/air-adventure-experiences/)
+- [small towns with beaches](https://travel.allwomenstalk.com/terrific-little-beach-towns-in-america/)
+- [romantic honeymoon destinations](https://wedding.allwomenstalk.com/great-sightseeing-honeymoon-destinations/)
+- [8 Romantic Cabin Locations ...](https://travel.allwomenstalk.com/8-romantic-cabin-locations/)
+- [8 Best Movie Destinations to Visit ...](https://travel.allwomenstalk.com/best-movie-destinations-to-visit/)
 - [fun places to go to](https://travel.allwomenstalk.com/7-fun-places-to-travel/)
 - [best solo vacation spots](https://travel.allwomenstalk.com/top-solo-travel-spots/)
-- [romantic honeymoon destinations](https://wedding.allwomenstalk.com/great-sightseeing-honeymoon-destinations/)
-- [8 Amazing Eco Friendly Hotels ...](https://travel.allwomenstalk.com/amazing-eco-friendly-hotels/)
-- [8 Romantic Cabin Locations ...](https://travel.allwomenstalk.com/8-romantic-cabin-locations/)
+- [european vacations on a budget](https://travel.allwomenstalk.com/cheap-european-vacation-ideas-that-will-save-you-thousands/)
 - [7 Ideas for Romantic Vacations ...](https://travel.allwomenstalk.com/7-ideas-for-romantic-vacations/)
 - [A Disney World Honeymoon: Guest Blogger Casie Shim...](https://wedding.allwomenstalk.com/a-disney-world-honeymoon-guest-blogger-casie-shimansky/)
 
