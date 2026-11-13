@@ -3,7 +3,7 @@ title: "Real Wedding: Get Your Party on in New Jersey!"
 description: "The Stunning Bride...; The Touching Ceremony...; The Cool Dudes...; The Glamorous Ladies...; The Party Props..."
 url: "https://wedding.allwomenstalk.com/real-wedding-get-your-party-on-in-new-jersey/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Real Wedding: Get Your Party on in New Jersey!
@@ -68,7 +68,7 @@ Their **ceremony** and **reception** were held at the beautiful [Addison Park](h
 
 Photo: [NylaGrayPhotography](https://web.archive.org/web/http://www.nylagray.com/blog/2010/09/christina-my-wedding/)
 
-For their **reception** and **first dance** Christina changed into her beautiful [BCBG](https://goo.gl/d7wURt)dress. I love that both of her **wedding dresses** were** one shoulder**, she looks amazing in both of them.
+For their **reception** and **first dance** Christina changed into her beautiful [BCBG](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.bcbg.com%2Fhome%2Findex.jsp&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweslrkput0025vh00000)dress. I love that both of her **wedding dresses** were** one shoulder**, she looks amazing in both of them.
 
 ## 3. Kiss Me...
 
@@ -96,20 +96,20 @@ In the first photo of the post the **glamorous bride** looks serious and proud a
 
 **Special Thanks to Photographer Nelson** @[NylaGrayPhotography](https://web.archive.org/web/http://www.nylagray.com/blog/)
 
-**Bride's Ceremony Dress**: [Rembo Styling](https://web.archive.org/web/https://rembo-styling.com/collection.htm)/** Reception Dress**: [BCBG](https://goo.gl/d7wURt) / **Floral Design**: [Floral Sentiments](https://web.archive.org/web/http://www.myfloralsentiments.com/contact.html)/ **Venue**: [Addison Park](http://theaddisonpark.com/)
+**Bride's Ceremony Dress**: [Rembo Styling](https://web.archive.org/web/https://rembo-styling.com/collection.htm)/** Reception Dress**: [BCBG](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.bcbg.com%2Fhome%2Findex.jsp&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweslrkput0025vh00000) / **Floral Design**: [Floral Sentiments](https://web.archive.org/web/http://www.myfloralsentiments.com/contact.html)/ **Venue**: [Addison Park](http://theaddisonpark.com/)
 
 ## Related Posts
 
-- [Real Wedding: Playful & Romantic in Sacramento ...](https://wedding.allwomenstalk.com/real-wedding-playful-romantic-in-sacramento/)
 - [5 Wedding Inspiration Ideas: Cities Full of Life ....](https://wedding.allwomenstalk.com/5-wedding-inspiration-ideas-cities-full-of-life/)
-- [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
-- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
-- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
+- [Real Wedding: Playful & Romantic in Sacramento ...](https://wedding.allwomenstalk.com/real-wedding-playful-romantic-in-sacramento/)
 - [how to pick a bridesmaid](https://wedding.allwomenstalk.com/5-ways-to-choose-your-bridesmaids/)
-- [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
 - [5 Ways to Plan an Eco-Friendly Wedding ...](https://wedding.allwomenstalk.com/ways-to-plan-an-eco-friendly-wedding/)
+- [6 Ways to Color Your Wedding Bright with Yellow .....](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-bright-with-yellow/)
 - [cinderella wedding invitation](https://wedding.allwomenstalk.com/ways-to-plan-a-fairytale-wedding/)
+- [4 Wedding Details to Get Your Groom Involved with ...](https://wedding.allwomenstalk.com/4-wedding-details-to-get-your-groom-involved-with/)
+- [fire themed wedding](https://wedding.allwomenstalk.com/5-cozy-winter-weddings-to-heat-up-your-fire/)
 - [christmas songs you can dance to](https://wedding.allwomenstalk.com/5-christmas-songs-to-play-at-your-winter-wedding/)
+- [balloons for wedding reception](https://wedding.allwomenstalk.com/4-ways-to-be-inspired-by-wedding-balloons/)
 - [4 Amazing Wedding Shots You Need to See!](https://wedding.allwomenstalk.com/4-amazing-wedding-shots-you-need-to-see/)
 - [A Spunk Filled Engagement Shoot in NYC ...](https://wedding.allwomenstalk.com/a-spunk-filled-engagement-shoot-in-nyc/)
 
