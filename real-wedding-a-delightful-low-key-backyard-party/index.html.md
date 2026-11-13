@@ -3,7 +3,7 @@ title: "Real Wedding: a Delightful Low-Key Backyard Party ..."
 description: "Earlier this afternoon I introduced you to this spunky, fun couple during their engagement shoot in NYC, and now you will fall even more in love with them!…"
 url: "https://wedding.allwomenstalk.com/real-wedding-a-delightful-low-key-backyard-party/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Real Wedding: a Delightful Low\-Key Backyard Party ...
@@ -30,7 +30,7 @@ Sealed with a Kiss....
 
 ![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/04/FEH10019_1057_434x652.jpg)
 
-"The dress was purchased from [Nordstrom](https://goo.gl/bq8dU0). I thought the dress was too casual and did not want to get chastised or have suggestions made by a stranger so when the cashier asked what the dress was for, I told her it was for a picnic. I also had a nightmare just maybe weeks before that I forgot to buy a dress (because I had yet to do so)! My excuse is that I was out of the country for two months. But I feel that the dress was just what I was looking for and I knew it would be easy to wear again in the future."
+"The dress was purchased from [Nordstrom](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fshop.nordstrom.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesslovmk0025vh00000). I thought the dress was too casual and did not want to get chastised or have suggestions made by a stranger so when the cashier asked what the dress was for, I told her it was for a picnic. I also had a nightmare just maybe weeks before that I forgot to buy a dress (because I had yet to do so)! My excuse is that I was out of the country for two months. But I feel that the dress was just what I was looking for and I knew it would be easy to wear again in the future."
 The Bridal Party...
 
 ![](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2011/04/FEH10019_0323_18_425x283.jpg)
@@ -97,14 +97,14 @@ One of my favorite photos...and they lived happily ever after! Congrats to this 
 
 - [royal wedding party ideas](https://wedding.allwomenstalk.com/things-you-need-for-a-royal-wedding-party/)
 - [outdoor wedding tips](https://wedding.allwomenstalk.com/tips-for-planning-a-garden-wedding/)
+- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
+- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
+- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
 - [dresses for 8 year olds weddings](https://wedding.allwomenstalk.com/8-things-people-hate-about-weddings/)
 - [where to register for a wedding](https://wedding.allwomenstalk.com/6-places-to-register-your-wedding/)
 - [black and white wedding theme](https://wedding.allwomenstalk.com/7-theme-wedding-ideas-that-rock/)
-- [2012 wedding dresses](https://wedding.allwomenstalk.com/wedding-trend-preview/)
 - [berries in flower bouquet](https://wedding.allwomenstalk.com/5-beautiful-wedding-bouquets-filled-with-berries/)
 - [rainbow wedding ideas](https://wedding.allwomenstalk.com/ways-to-color-your-rainbow-themed-wedding/)
-- [wedding colors in october](https://wedding.allwomenstalk.com/perfect-combinations-for-fall-wedding-colors/)
-- [non white bridal dresses](https://wedding.allwomenstalk.com/colors-to-wear-if-youre-not-the-bride/)
 - [3 Amazing Offbeat Weddings ...](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 - [Real Wedding: Get Your Party on in New Jersey!](https://wedding.allwomenstalk.com/real-wedding-get-your-party-on-in-new-jersey/)
 
