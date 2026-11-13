@@ -3,7 +3,7 @@ title: "4 Wedding Inspiration Ideas: Teacups & Teapots ..."
 description: "Alice Inspired...; Tea for Two...; Tea & Succulents...; Romantic & Rustic..."
 url: "https://wedding.allwomenstalk.com/wedding-inspiration-teacups-teapots/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 4 Wedding Inspiration Ideas: Teacups & Teapots ...
@@ -14,7 +14,7 @@ I love seeing mason jars, bottles, and vintage vases for centerpieces and easy D
 
 Photos: [StyleMePretty](https://www.stylemepretty.com/), [KitchenofCarla&Elaine](http://justfordesserts.blogspot.com/2010/01/tea-cup-cake.html)
 
-Everyone's favorite** tea time** includes a **mad hatter**, a **white rabbit** running late, and a little girl named [Alice](https://movies.disney.com/). Your wedding details don't have to be a crazy [Alice in Wonderland](https://goo.gl/gPYTJ8)**theme** just because you want to include beautiful **teacups** and **teapots**. Let your [imagination](https://wedding.allwomenstalk.com/diy-wedding-ideas-on-a-budget-guest-blogger-poppies-sunshine/)run wild like the little girl who fell down the rabbit hole, and let Alice **inspire** you and your big day like this amazing **teacup wedding cake** from [Carla and Elaine](http://justfordesserts.blogspot.com/)!
+Everyone's favorite** tea time** includes a **mad hatter**, a **white rabbit** running late, and a little girl named [Alice](https://movies.disney.com/). Your wedding details don't have to be a crazy [Alice in Wonderland](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.disneystore.com%2Falice-in-wonderland-special-un-anniversary-edition-2-disc-dvd%2Fmp%2F1260769%2F1000233%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweslerx470025vh00000)**theme** just because you want to include beautiful **teacups** and **teapots**. Let your [imagination](https://wedding.allwomenstalk.com/diy-wedding-ideas-on-a-budget-guest-blogger-poppies-sunshine/)run wild like the little girl who fell down the rabbit hole, and let Alice **inspire** you and your big day like this amazing **teacup wedding cake** from [Carla and Elaine](http://justfordesserts.blogspot.com/)!
 
 ## 3. Tea for Two...
 
@@ -41,15 +41,15 @@ Top Photo: [AustinWeddingBlog.com](https://web.archive.org/web/https://www.austi
 ## Related Posts
 
 - [just married cans behind car](https://wedding.allwomenstalk.com/7-fun-ways-to-decorate-a-wedding-car/)
-- [girls loving dogs](https://wedding.allwomenstalk.com/1-guy-1-girl-1-dog-a-fun-loving-engagement-shoot-in-florida/)
-- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
-- [tulip wedding bouquets](https://wedding.allwomenstalk.com/5-beautiful-tulip-wedding-bouquets/)
-- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
-- [The Charity Wedding: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/the-charity-wedding-above-and-beyond-the-wedding-industry/)
-- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
-- [ice bucket decorating ideas](https://wedding.allwomenstalk.com/5-ways-to-use-buckets-for-your-wedding-decor/)
 - [wedding pictures idea](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
+- [tulip wedding bouquets](https://wedding.allwomenstalk.com/5-beautiful-tulip-wedding-bouquets/)
+- [ice bucket decorating ideas](https://wedding.allwomenstalk.com/5-ways-to-use-buckets-for-your-wedding-decor/)
+- [The Charity Wedding: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/the-charity-wedding-above-and-beyond-the-wedding-industry/)
+- [girls loving dogs](https://wedding.allwomenstalk.com/1-guy-1-girl-1-dog-a-fun-loving-engagement-shoot-in-florida/)
 - [pink brides](https://wedding.allwomenstalk.com/ways-to-tickle-your-wedding-pink/)
+- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
+- [Warm up Your Winter Wedding with These Tasteful Tr...](https://twilight.allwomenstalk.com/5-cool-places-to-read-twilight/)
+- [new years eve anniversary](https://wedding.allwomenstalk.com/5-ways-to-celebrate-your-new-years-eve-wedding/)
 - [4 Delicious Cupcakes for Your Wedding ...](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
 - [5 Inspiring Ideas from Martha Stewart Weddings ...](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
 
