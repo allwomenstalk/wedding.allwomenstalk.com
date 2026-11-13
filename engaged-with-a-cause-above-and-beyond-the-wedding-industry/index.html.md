@@ -3,7 +3,7 @@ title: "Engaged with a Cause: above and beyond the Wedding Industry ..."
 description: "In What Ways Are You Donating or Volunteering?; Why Did You Want to Put the Word out through Your Blog?; Who do You Raise Awareness for and Why?"
 url: "https://wedding.allwomenstalk.com/engaged-with-a-cause-above-and-beyond-the-wedding-industry/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Engaged with a Cause: above and beyond the Wedding Industry ...
@@ -24,7 +24,7 @@ We are hiring** socially conscious vendors** for our wedding- whether that means
 ~50% of **Save-the-Dates** by Carissa Nee will go to [UNICEF](https://www.unicefusa.org/press/releases)Japan
 ~We are **registered** with the [I Do Foundation](https://web.archive.org/web/https://www.joyceandjimlavene.com/), so 3-5% of every purchase on our registry will benefit Donors Choose, [Share Our Strength](https://web.archive.org/web/http://strength.org/)and the [Global Fund for Women](https://www.globalfundforwomen.org/).
 
-~Our **photographer**, [Fine Arts Exposure](https://web.archive.org/web/http://www.fineartexposure.com/), for the wedding is donating $500 of her fee for our wedding to [Operation Smile.](https://www.operationsmile.org/)~[Baby Eliza Boutique](https://goo.gl/6IlQ3Z)is doing my **hairpieces** and donating a percent to the [Cystic Fibrosis Foundation](https://www.cff.org/).
+~Our **photographer**, [Fine Arts Exposure](https://web.archive.org/web/http://www.fineartexposure.com/), for the wedding is donating $500 of her fee for our wedding to [Operation Smile.](https://www.operationsmile.org/)~[Baby Eliza Boutique](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2Fbabyeliza&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesqo3dh30025vh00000)is doing my **hairpieces** and donating a percent to the [Cystic Fibrosis Foundation](https://www.cff.org/).
 
 In some cases, our fee will not go directly to charity, but the vendor will then in turn be able to help others who cannot afford the service otherwise- like our **wedding planner** [(Get Polished](https://web.archive.org/web/http://www.getpolishedevents.com/)) helps with [Wish Upon A Wedding](https://web.archive.org/web/http://wishuponawedding.org/)or in kind works like our **videographer**, [Studio Vieux Carre](https://studiovc.com/), who will be doing pro-bono psa's for local homeless non-profits with the payment from our wedding.
 
@@ -59,14 +59,14 @@ It is important for me that people know it is really hard to have a wedding that
 ## Related Posts
 
 - [For Japan with Love: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/for-japan-with-love-above-and-beyond-the-wedding-industry/)
+- [bridal shower ideas themes](https://wedding.allwomenstalk.com/theme-ideas-for-a-bridal-shower/)
+- [cinco de mayo wedding anniversary](https://wedding.allwomenstalk.com/reasons-to-celebrate-a-cinco-de-mayo-wedding/)
 - [7 Extremely Important Things to do 24 Hours before...](https://wedding.allwomenstalk.com/extremely-important-things-to-do-24-hours-before-your-highly-anticipated/)
 - [benefits of destination wedding](https://wedding.allwomenstalk.com/reasons-to-have-a-destination-wedding/)
 - [winter wedding favors](https://wedding.allwomenstalk.com/elegant-winter-theme-wedding-favors/)
-- [5 Ways to Color Your Wedding Green with Envy ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-green-with-envy/)
 - [unique wedding bouquets](https://wedding.allwomenstalk.com/6-unique-wedding-bouquets-that-will-last-forever/)
 - [unusual wedding band](https://wedding.allwomenstalk.com/5-unique-wedding-band-sets/)
-- [bridal shower ideas themes](https://wedding.allwomenstalk.com/theme-ideas-for-a-bridal-shower/)
-- [cinco de mayo wedding anniversary](https://wedding.allwomenstalk.com/reasons-to-celebrate-a-cinco-de-mayo-wedding/)
+- [5 Ways to Color Your Wedding Green with Envy ...](https://wedding.allwomenstalk.com/ways-to-color-your-wedding-green-with-envy/)
 - [black and white cookie wedding favors](https://wedding.allwomenstalk.com/chic-ways-to-plan-a-black-white-wedding/)
 - [Real Wedding: Tears Full of Happiness ...](https://wedding.allwomenstalk.com/real-wedding-tears-full-of-happiness/)
 - [Jars of Love: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/)
