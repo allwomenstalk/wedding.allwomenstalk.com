@@ -3,7 +3,7 @@ title: "4 Lasting Bridal Makeup Trends & Tips ..."
 description: "Smokey Eyed Bride...; Natural Beauty...; Retro Red Lip..."
 url: "https://wedding.allwomenstalk.com/4-lasting-bridal-makeup-trends-tips/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 4 Lasting Bridal Makeup Trends & Tips ...
@@ -16,7 +16,7 @@ last_updated: "2026-11-10"
 
 Photo: [Stylemepretty.com](https://www.stylemepretty.com/search/photos/makeup?)
 
-For the **dramatic bride** who wants to make a statement go all out with the **smokey eye** and black birdcage veil like this gorgeous bride-to-be. Always remember to start with a [waterproof eyeshadow](https://goo.gl/scJuC7)before layering on the look that you're trying to achieve. Finish off the** edgy bridal trend** with [waterproof eyeliner](https://allwomenstalk.com/best-eyeliners-expert-reviews/) and [mascara](https://goo.gl/2MTTL1). **Did you wear a dramatic look for your wedding day?**
+For the **dramatic bride** who wants to make a statement go all out with the **smokey eye** and black birdcage veil like this gorgeous bride-to-be. Always remember to start with a [waterproof eyeshadow](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.maccosmetics.com%2Fproduct%2Fshaded%2F154%2F1573%2FPaint-Pot%2Findex.tmpl&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesgc1f5v0025vh00000)before layering on the look that you're trying to achieve. Finish off the** edgy bridal trend** with [waterproof eyeliner](https://allwomenstalk.com/best-eyeliners-expert-reviews/) and [mascara](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.shuuemura-usa.com%2F_us%2F_en%2Fmakeup%2Fmascara%2Fprecise-volume-mascara.htm&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesgbxy7w0025vh00000). **Did you wear a dramatic look for your wedding day?**
 
 **3. Exotic Features...**
 
@@ -32,7 +32,7 @@ Brides with **exotic features** should play around with **color** and not go too
 
 Photo: [StyleMePretty.com](https://www.stylemepretty.com/search/photos/makeup?)
 
-If you're a **bride** who **doesn't wear much makeup **on a daily basis you shouldn't go heavy on your **wedding day**. Look **natural** and stay **true** to your look. Apply light shades of **pink**, **peach**,or **gold** to your **eyes** and **lips**. For a finished **glowing** look try [primers](https://goo.gl/fIfywV) or [foundations](https://allwomenstalk.com/7-new-foundations-you-should-try/) that add a little[shimmer to your complexion](https://goo.gl/kHJdK8). **What makeup did you wear for your true beauty look? **
+If you're a **bride** who **doesn't wear much makeup **on a daily basis you shouldn't go heavy on your **wedding day**. Look **natural** and stay **true** to your look. Apply light shades of **pink**, **peach**,or **gold** to your **eyes** and **lips**. For a finished **glowing** look try [primers](https://goo.gl/fIfywV) or [foundations](https://allwomenstalk.com/7-new-foundations-you-should-try/) that add a littleshimmer to your complexion. **What makeup did you wear for your true beauty look? **
 
 ## 1. Retro Red Lip...
 
@@ -40,7 +40,7 @@ If you're a **bride** who **doesn't wear much makeup **on a daily basis you shou
 
 Photo: [StyleMePretty.com](https://www.stylemepretty.com/search/photos/makeup?)
 
-**Classic**, **Retro**, **Timeless**. Beautiful **red lips** with a simple, **light eyeshadow** marks the look of a **classy bride** who dares to wear a stunning mermaid gown. Try [Ulta's Ruby lip color](https://goo.gl/wCGpCl) for a [bold retro look](https://allwomenstalk.com/8-retro-ways-to-have-a-mad-men-inspired-wedding/)that will leave your guests speechless! I've always loved the retro bridal trend, but thought I could never pull it off. **Were you a knock out red lip bride on your big day?**
+**Classic**, **Retro**, **Timeless**. Beautiful **red lips** with a simple, **light eyeshadow** marks the look of a **classy bride** who dares to wear a stunning mermaid gown. Try [Ulta's Ruby lip color](https://www.ulta.com/ulta/browse/category.jsp?pag=true&amp) for a [bold retro look](https://allwomenstalk.com/8-retro-ways-to-have-a-mad-men-inspired-wedding/)that will leave your guests speechless! I've always loved the retro bridal trend, but thought I could never pull it off. **Were you a knock out red lip bride on your big day?**
 
 **What makeup trends did you wear for your wedding day?**
 
@@ -48,16 +48,16 @@ Photo: [StyleMePretty.com](https://www.stylemepretty.com/search/photos/makeup?)
 
 ## Related Posts
 
-- [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
-- [fast makeup](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [8 Must-do Make up Rituals before Your Wedding Day ...](https://wedding.allwomenstalk.com/8-must-do-make-up-rituals-before-your-wedding-day/)
-- [70s eye makeup](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
-- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
-- [make up test](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
+- [8 Unbelievably Awesome Bridal Makeup Video Tutoria...](https://wedding.allwomenstalk.com/unbelievably-awesome-bridal-makeup-video-tutorials/)
 - [bronzer where to apply](https://makeup.allwomenstalk.com/tips-to-apply-bronzer-like-a-pro/)
 - [loreal color riche stylo bottomless](https://makeup.allwomenstalk.com/summer-makeup-looks/)
-- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
+- [fast makeup](https://makeup.allwomenstalk.com/15-fast-makeup-tips/)
 - [how to apply liquid eyeliner](https://makeup.allwomenstalk.com/liquid-eyeliner-application-tips/)
+- [make up test](https://makeup.allwomenstalk.com/ways-to-test-makeup/)
+- [70s eye makeup](https://makeup.allwomenstalk.com/7-70s-makeup-looks/)
+- [false eyelashes tips](https://makeup.allwomenstalk.com/tips-for-success-with-false-eyelashes/)
+- [loreal paris color stylo eye rush](https://makeup.allwomenstalk.com/tips-on-how-to-apply-eye-makeup/)
 - [7 Tips on Finding a Great Makeup Artist for Your W...](https://wedding.allwomenstalk.com/7-tips-on-finding-a-great-makeup-artist-for-your-wedding/)
 - [7 Summer Eye Makeup Tips ...](https://makeup.allwomenstalk.com/summer-eye-makeup-tips/)
 
