@@ -3,7 +3,7 @@ title: "A Honeymoon Cruise to Hawaii: Guest Blogger Bicoastal Bride ..."
 description: "The Love of Hawaii...; Everyone Loves Honeymooners...; One with the Ocean...; Steaming Craters...; Hawaii Lei It on Us..."
 url: "https://wedding.allwomenstalk.com/a-honeymoon-cruise-to-hawaii-guest-blogger-bicoastal-bride/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # A Honeymoon Cruise to Hawaii: Guest Blogger Bicoastal Bride ...
@@ -26,7 +26,7 @@ And since we were traveling by cruise aboard [Norwegian’s Pride of America](ht
 
 Photo: [BicoastalBride](http://bicoastalbrideblog.blogspot.com/)
 
-"Since this was our **honeymoon**, and our guests had showered us with so many great[Honeyfund gift certificates](https://goo.gl/BDx6Xd), we decided to splurge a bit. In addition to wine tasting, sangria at sunset, and my swanky spa haircut, one of our favorite things to do was visit the ship’s several **specialty restaurants**. From **Asian fusion** to steak to Italian, these places were the best!
+"Since this was our **honeymoon**, and our guests had showered us with so many great[Honeyfund gift certificates](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.honeyfund.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweskp2e150025vh00000), we decided to splurge a bit. In addition to wine tasting, sangria at sunset, and my swanky spa haircut, one of our favorite things to do was visit the ship’s several **specialty restaurants**. From **Asian fusion** to steak to Italian, these places were the best!
 
 And the most fun part? Whenever the restaurant staff found out it was our **honeymoon**, they would gather around to sing** “Let Me Call You Sweetheart”** as they placed a **“Happy Honeymoon” cake** on our table! At the Asian restaurant, they even made us wear **dragon costumes** during the song. Too funny!"
 
@@ -66,15 +66,15 @@ When you **travel**, do you tend to go for popular tourist attractions, or do yo
 
 ## Related Posts
 
-- [beijing most expensive hotel](https://travel.allwomenstalk.com/best-luxury-hotels-in-the-world/)
-- [7 Unmissable and Unforgettable Horse Riding Camps ...](https://travel.allwomenstalk.com/unmissable-and-unforgettable-horse-riding-camps/)
-- [honeymoon destinations australia](https://wedding.allwomenstalk.com/7-beautiful-destinations-for-your-australian-honeymoon/)
-- [tropical honeymoon on a budget](https://travel.allwomenstalk.com/best-budget-honeymoon-destinations/)
-- [10 Amazing Places to Go Snorkeling ...](https://travel.allwomenstalk.com/amazing-places-to-go-snorkeling/)
-- [cruises 2012](https://travel.allwomenstalk.com/best-cruises-for/)
-- [Romantic Honeymoon in Puerto Vallarta: Guest Blogg...](https://wedding.allwomenstalk.com/romantic-honeymoon-in-puerto-vallarta-guest-blogger-savy-deets-bridal/)
 - [Top 7 Vacation Spots ...](https://travel.allwomenstalk.com/top-7-vacation-spots/)
 - [10 Fabulous but Little Known American Islands ...](https://travel.allwomenstalk.com/fabulous-but-little-known-american-islands/)
+- [cruises 2012](https://travel.allwomenstalk.com/best-cruises-for/)
+- [honeymoon destinations australia](https://wedding.allwomenstalk.com/7-beautiful-destinations-for-your-australian-honeymoon/)
+- [tropical honeymoon on a budget](https://travel.allwomenstalk.com/best-budget-honeymoon-destinations/)
+- [beijing most expensive hotel](https://travel.allwomenstalk.com/best-luxury-hotels-in-the-world/)
+- [10 Amazing Places to Go Snorkeling ...](https://travel.allwomenstalk.com/amazing-places-to-go-snorkeling/)
+- [7 Unmissable and Unforgettable Horse Riding Camps ...](https://travel.allwomenstalk.com/unmissable-and-unforgettable-horse-riding-camps/)
+- [Romantic Honeymoon in Puerto Vallarta: Guest Blogg...](https://wedding.allwomenstalk.com/romantic-honeymoon-in-puerto-vallarta-guest-blogger-savy-deets-bridal/)
 - [7 Top Honeymoon Destinations ...](https://wedding.allwomenstalk.com/7-top-honeymoon-destinations/)
 - [A Disney World Honeymoon: Guest Blogger Casie Shim...](https://wedding.allwomenstalk.com/a-disney-world-honeymoon-guest-blogger-casie-shimansky/)
 - [Honeymoon Adventure in Japan: Guest Blogger Kristi...](https://wedding.allwomenstalk.com/honeymoon-adventure-in-japan-guest-blogger-kristin/)
