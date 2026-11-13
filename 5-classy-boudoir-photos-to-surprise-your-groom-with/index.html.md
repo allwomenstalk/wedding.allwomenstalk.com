@@ -3,7 +3,7 @@ title: "5 Classy Boudoir Photos to Surprise Your Groom with ..."
 description: "Naughty or Nice...; 60's Inspiration...; Score a Touchdown...; Salute Your Man...; Work It Girl..."
 url: "https://wedding.allwomenstalk.com/5-classy-boudoir-photos-to-surprise-your-groom-with/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 5 Classy Boudoir Photos to Surprise Your Groom with ...
@@ -24,7 +24,7 @@ Here comes Santa's little helper! **Boudoir photos** don't have to be all about 
 
 Photo: [PinupGirlPics.com](https://web.archive.org/web/http://www.pinupgirlpics.com/)
 
-Swim right into his arms! Does your man love to watch [Mad Men](https://allwomenstalk.com/8-retro-ways-to-have-a-mad-men-inspired-wedding/) or have a few [pinup girl tattoos](http://pinuptattoos.blogspot.com/)? Take your **groom** back to his favorite era as you dress up like a **sexy pinup** **girl** who will spank him if he gets out of line! Put on a [60's inspired bathing suit](https://goo.gl/Jc6BtO) and he'll be eating out of the palms of your hands all night long. **Are you a retro bride looking for the perfect gift? **
+Swim right into his arms! Does your man love to watch [Mad Men](https://allwomenstalk.com/8-retro-ways-to-have-a-mad-men-inspired-wedding/) or have a few [pinup girl tattoos](http://pinuptattoos.blogspot.com/)? Take your **groom** back to his favorite era as you dress up like a **sexy pinup** **girl** who will spank him if he gets out of line! Put on a [60's inspired bathing suit](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.modcloth.com%2Fstore%2FModCloth%2FWomens%2FBeach%2BBlanket%2BBingo%2BOne%2BPiece%2Bin%2BRed%2BPlus%2BSize&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesf8kjn10025vh00000) and he'll be eating out of the palms of your hands all night long. **Are you a retro bride looking for the perfect gift? **
 
 ## 3. Score a Touchdown...
 
@@ -32,7 +32,7 @@ Swim right into his arms! Does your man love to watch [Mad Men](https://allwomen
 
 Photo: [PinupGirlPics.com](https://web.archive.org/web/http://www.pinupgirlpics.com/)
 
-Give that [sports](https://allwomenstalk.com/7-best-sports-magazines/) fan something to love other than **football**! Look **sexy** and **sporty** while wearing his favorite team's jersey or wear [his jersey](https://goo.gl/5SdSQT)! You don't need to be naked for a boudoir; give your **groom** something yummy to drool over while wearing a [tight top](https://goo.gl/K52Qu9), **booty shorts**, and [delicious high heels](https://allwomenstalk.com/7-sexy-heels-for-fall/) like this **glamorous football fan**! What **team** does your husband-2-be love?
+Give that [sports](https://allwomenstalk.com/7-best-sports-magazines/) fan something to love other than **football**! Look **sexy** and **sporty** while wearing his favorite team's jersey or wear his jersey! You don't need to be naked for a boudoir; give your **groom** something yummy to drool over while wearing a tight top, **booty shorts**, and [delicious high heels](https://allwomenstalk.com/7-sexy-heels-for-fall/) like this **glamorous football fan**! What **team** does your husband-2-be love?
 
 ## 2. Salute Your Man...
 
@@ -56,16 +56,16 @@ Top Photo: [Pussycatpinups.com](https://web.archive.org/web/http://pussycatpinup
 
 ## Related Posts
 
-- [rustic diy wedding centerpieces](https://wedding.allwomenstalk.com/5-rustic-wedding-centerpiece-ideas/)
-- [7 Innovative Bridal Shower Ideas ...](https://wedding.allwomenstalk.com/innovative-bridal-shower-ideas/)
+- [summer beach wedding colors](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
 - [bridesmaid job](https://wedding.allwomenstalk.com/10-things-every-bridesmaid-should-do/)
+- [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
 - [chandeliers wedding](https://wedding.allwomenstalk.com/4-ways-to-shine-with-wedding-chandeliers/)
 - [how to make money for a wedding](https://wedding.allwomenstalk.com/7-ways-to-raise-money-for-a-fabulous-honeymoon/)
-- [summer beach wedding colors](https://wedding.allwomenstalk.com/5-beach-weddings-to-inspire-your-summer-wedding/)
-- [examples](https://wedding.allwomenstalk.com/8-advantages-of-a-guest-free-wedding/)
-- [unique winter wedding ideas](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
-- [geeky wedding](https://wedding.allwomenstalk.com/5-fun-ways-to-celebrate-your-nerdy-wedding/)
 - [royal wedding party ideas](https://wedding.allwomenstalk.com/5-royal-wedding-looks-for-your-bridesmaids/)
+- [geeky wedding](https://wedding.allwomenstalk.com/5-fun-ways-to-celebrate-your-nerdy-wedding/)
+- [7 Innovative Bridal Shower Ideas ...](https://wedding.allwomenstalk.com/innovative-bridal-shower-ideas/)
+- [unique winter wedding ideas](https://wedding.allwomenstalk.com/fantastic-winter-wedding-ideas/)
+- [rustic diy wedding centerpieces](https://wedding.allwomenstalk.com/5-rustic-wedding-centerpiece-ideas/)
 - [5 Boutonnieres for Your Groom to Proudly Wear ...](https://wedding.allwomenstalk.com/5-boutonnieres-for-your-groom-to-proudly-wear/)
 - [5 Awesome Cufflinks for Your Groom ...](https://wedding.allwomenstalk.com/5-awesome-cufflinks-for-your-groom/)
 
