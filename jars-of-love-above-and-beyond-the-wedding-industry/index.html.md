@@ -3,7 +3,7 @@ title: "Jars of Love: above and beyond the Wedding Industry ..."
 description: "She is a lovely woman, daughter, grand-daughter, wife, sister, niece, friend, smart business woman, and a true inspiration to everyone she meets. Her heart is…"
 url: "https://wedding.allwomenstalk.com/jars-of-love-above-and-beyond-the-wedding-industry/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # Jars of Love: above and beyond the Wedding Industry ...
@@ -18,7 +18,7 @@ Jacin wanted to do something to help others and in her heart was her beautiful g
 
 With her **Jars of Love**, Jacin raises awareness and money for those in need, [Operation Layla](https://operationlayla.wordpress.com/)is for a beautiful woman who was diagnoised with cervical cancer soon after her 30th birthday. She had the cancer removed but three years later had complications and horrible pain, which was found out to be from the scar tissue. She was able to get on her husband's insurance but they wouldn't cover her because this was a problem that existed before she was covered with them.
 
-Together with the love of the blogging world with [Operation Layla](https://operationlayla.wordpress.com/), Jacin canned some of her [Jars of Love](https://web.archive.org/web/https://jarsoflove.wordpress.com/about/)and sold them on her [Etsy store](https://goo.gl/4suwby)to help raise money for Layla's surgery. Today is Layla's surgery and all of the money has been raised to cover the cost. We're thinking of you today and wish you a quick recovery.
+Together with the love of the blogging world with [Operation Layla](https://operationlayla.wordpress.com/), Jacin canned some of her [Jars of Love](https://web.archive.org/web/https://jarsoflove.wordpress.com/about/)and sold them on her [Etsy store](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.etsy.com%2Fshop%2Fjacey10&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesphdqw70025vh00000)to help raise money for Layla's surgery. Today is Layla's surgery and all of the money has been raised to cover the cost. We're thinking of you today and wish you a quick recovery.
 
 The beautiful woman behind **Jars of Love** and **Lovely Little Details**:
 
@@ -32,16 +32,16 @@ She is a strong, inspiring woman and every day I blog knowing there are women ou
 
 ## Related Posts
 
-- [bhldn table number holder](https://wedding.allwomenstalk.com/wedding-decorating-accessories-i-love-from-bhldn/)
-- [honeymoon in jamaica](https://wedding.allwomenstalk.com/a-tropical-paradise-honeymoon-in-jamaica-guest-blogger-alicia-the-charity-wedding/)
-- [7 Tips on Planning a Great Bridal Shower ...](https://wedding.allwomenstalk.com/tips-on-planning-a-great-bridal-shower/)
-- [8 Advice for Those Getting Married …](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
 - [bridal jitters](https://wedding.allwomenstalk.com/8-ways-to-handle-pre-wedding-jitters/)
+- [bhldn table number holder](https://wedding.allwomenstalk.com/wedding-decorating-accessories-i-love-from-bhldn/)
+- [7 Tips on Planning a Great Bridal Shower ...](https://wedding.allwomenstalk.com/tips-on-planning-a-great-bridal-shower/)
 - [Real Wedding: Handmade with Love ...](https://wedding.allwomenstalk.com/real-wedding-handmade-with-love/)
 - [green themed wedding](https://wedding.allwomenstalk.com/7-ways-to-celebrate-an-irish-themed-wedding/)
-- [grey and purple wedding](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
+- [honeymoon in jamaica](https://wedding.allwomenstalk.com/a-tropical-paradise-honeymoon-in-jamaica-guest-blogger-alicia-the-charity-wedding/)
 - [bridesmaids with fans](https://wedding.allwomenstalk.com/5-unique-things-for-your-bridesmaids-to-carry/)
+- [grey and purple wedding](https://wedding.allwomenstalk.com/4-inspiring-ways-to-plan-a-purple-wedding/)
 - [4 Ways to Mix up the Colors for Your Wedding ...](https://wedding.allwomenstalk.com/4-ways-to-mix-up-the-colors-for-your-wedding/)
+- [8 Advice for Those Getting Married …](https://wedding.allwomenstalk.com/8-advice-for-those-getting-married/)
 - [5 Inspiring Ideas from Martha Stewart Weddings ...](https://wedding.allwomenstalk.com/5-inspiring-ideas-from-martha-stewart-weddings/)
 - [3 Amazing Offbeat Weddings ...](https://wedding.allwomenstalk.com/3-amazing-offbeat-weddings/)
 
