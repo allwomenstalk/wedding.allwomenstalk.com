@@ -3,7 +3,7 @@ title: "4 Wedding Inspiration Ideas: Runway Fashion ..."
 description: "Shine & Sparkle...; Summer Splash...; Purple Swirls...; Bohemian Chic..."
 url: "https://wedding.allwomenstalk.com/4-wedding-inspiration-ideas-runway-fashion/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 4 Wedding Inspiration Ideas: Runway Fashion ...
@@ -12,7 +12,7 @@ Sometimes we see the same **wedding ideas** over and over again; balloons, musta
 
 ## 4. Shine & Sparkle...
 
-[Rachel Zoe](https://web.archive.org/web/http://www.rachelzoe.com/welcome) has given the [fashion](https://fashion.allwomenstalk.com/)world a preview of her new line and now you can be inspired to let your wedding **shine** and **sparkle** with this fun and flirty one shoulder **blue squin dress**! Do you think your **bridesmaids** would wear something like this!? If not, cover your reception with [crystal beads](https://web.archive.org/web/http://www.save-on-crafts.com/crystalgarland.html), send out [chandelier invitations](https://goo.gl/tuP1H2), and find the perfect pair of[sparkly blue heels](https://web.archive.org/web/https://us.christianlouboutin.com/samira-strass-100mm.html) to get your **blue sparkle** **inspiration** started!
+[Rachel Zoe](https://web.archive.org/web/http://www.rachelzoe.com/welcome) has given the [fashion](https://fashion.allwomenstalk.com/)world a preview of her new line and now you can be inspired to let your wedding **shine** and **sparkle** with this fun and flirty one shoulder **blue squin dress**! Do you think your **bridesmaids** would wear something like this!? If not, cover your reception with [crystal beads](https://web.archive.org/web/http://www.save-on-crafts.com/crystalgarland.html), send out [chandelier invitations](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.zazzle.com%2Fparisian_turquoise_invitation-161278602644944270&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mweslxtx9d0025vh00000), and find the perfect pair of[sparkly blue heels](https://web.archive.org/web/https://us.christianlouboutin.com/samira-strass-100mm.html) to get your **blue sparkle** **inspiration** started!
 
 ## 3. Summer Splash...
 
@@ -24,7 +24,7 @@ You should know by now that my new favorite wedding color is **purple**, but I d
 
 ## 1. Bohemian Chic...
 
-The colors, texture, leather belt, flow of the fabric, and the style of her hair just screams **bohemian chic** to me! [Alexander Mcqueen's](https://goo.gl/W9GeyG)dress has inspired a fall, succulent, outdoor, orange calla lily, leather trunk wedding that I would love to see come to life. How brilliant would your **bridesmaids** look wearing a beautiful [floral dress](https://wedding.allwomenstalk.com/5-hot-dresses-for-every-spring-2011-bridesmaid/)as you walk down the aisle in a flowy, [bohemian gown](https://www.onewed.com/wedding-dresses/)with a gorgeous [fern crown](https://goo.gl/BPsC23)on your head!
+The colors, texture, leather belt, flow of the fabric, and the style of her hair just screams **bohemian chic** to me! [Alexander Mcqueen's](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.alexandermcqueen.com%2F&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesed0coz0025vh00000)dress has inspired a fall, succulent, outdoor, orange calla lily, leather trunk wedding that I would love to see come to life. How brilliant would your **bridesmaids** look wearing a beautiful [floral dress](https://wedding.allwomenstalk.com/5-hot-dresses-for-every-spring-2011-bridesmaid/)as you walk down the aisle in a flowy, [bohemian gown](https://www.onewed.com/wedding-dresses/)with a gorgeous [fern crown](https://goo.gl/BPsC23)on your head!
 
 **Did you find your wedding inspiration on the fashion runway?**
 
@@ -32,16 +32,16 @@ Photos:[StyleMePretty](https://www.stylemepretty.com/), [Style.com](https://web.
 
 ## Related Posts
 
-- [winter wedding invitations cheap](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
-- [bubblerock](https://wedding.allwomenstalk.com/bubblerock-studios-above-and-beyond-the-wedding-industry/)
-- [candy bridal](https://wedding.allwomenstalk.com/sweet-ideas-for-a-candy-themed-bridal-shower/)
-- [easter themed wedding](https://wedding.allwomenstalk.com/5-creative-ideas-for-an-easter-holiday-wedding/)
-- [wedding mailing stamps](https://wedding.allwomenstalk.com/vendor-spotlight-wedding-stamps/)
+- [invitation with location](https://wedding.allwomenstalk.com/8-ways-to-let-your-destination-wedding-location-guide-your-letterpress-invitation/)
 - [Just B.Cause: above and beyond the Wedding Industr...](https://wedding.allwomenstalk.com/just-b-cause-above-and-beyond-the-wedding-industry/)
+- [easter themed wedding](https://wedding.allwomenstalk.com/5-creative-ideas-for-an-easter-holiday-wedding/)
+- [bubblerock](https://wedding.allwomenstalk.com/bubblerock-studios-above-and-beyond-the-wedding-industry/)
+- [wedding mailing stamps](https://wedding.allwomenstalk.com/vendor-spotlight-wedding-stamps/)
+- [candy bridal](https://wedding.allwomenstalk.com/sweet-ideas-for-a-candy-themed-bridal-shower/)
 - [october wedding flowers](https://wedding.allwomenstalk.com/beautiful-fall-wedding-flower-ideas/)
 - [etiquette wedding](https://wedding.allwomenstalk.com/wedding-etiquette-tips-you-might-not-be-aware-of/)
+- [winter wedding invitations cheap](https://wedding.allwomenstalk.com/amazingly-unique-ideas-for-winter-wedding-invitations/)
 - [elizabeth taylor on marriage](https://wedding.allwomenstalk.com/8-weddings-and-one-bride-a-tribute-to-elizabeth-taylor/)
-- [invitation with location](https://wedding.allwomenstalk.com/8-ways-to-let-your-destination-wedding-location-guide-your-letterpress-invitation/)
 - [4 Chic Heels That Will Ruffle Your Wedding Feather...](https://wedding.allwomenstalk.com/4-chic-heels-that-will-ruffle-your-wedding-feathers/)
 - [6 Creative Styles for Your Wedding Aisle ...](https://wedding.allwomenstalk.com/6-creative-styles-for-your-wedding-aisle/)
 
