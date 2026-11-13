@@ -3,7 +3,7 @@ title: "5 Unique Place Card Ideas for Your Wedding ..."
 description: "Something Good to Eat...; Winter Wonderland...; Head to the Beach...; Light the Way..."
 url: "https://wedding.allwomenstalk.com/5-unique-place-card-ideas-for-your-wedding/"
 category: "wedding"
-last_updated: "2026-11-10"
+last_updated: "2026-11-13"
 ---
 
 # 5 Unique Place Card Ideas for Your Wedding ...
@@ -22,7 +22,7 @@ When I saw this **adorable cookie** I knew I had to share it and do a post about
 
 ![Something Good to Eat...](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/wedding/2010/12/plantable-seed-place-card-500_400x400.jpg)
 
-Photo: [Beau-coup.com](https://goo.gl/I1GV9z)
+Photo: [Beau-coup.com](https://compare.sovrn.co/?cp=DM&cpUrl=http%3A%2F%2Fwww.beau-coup.com%2Fplantable-seed-place-card.htm&key=a7330d1bba7bc7d258ecc1463a1b25b1&opt=false&parentSid=mwesgit7x90025vh00000)
 
 Would you believe that this** place card is plantable**? Dig a hole in the dirt, put the place card in, water, and soon you shall have a little garden of beautiful wildflowers! Each **seating card** is made of [biodegradable paper](https://greenpaperproducts.com/) that is embedded with **wildflower seeds**. You get a **place card**, a **favor**, and [no waste](https://allwomenstalk.com/8-reasons-to-use-eco-friendly-products/)! **What are your green wedding ideas? **
 
@@ -57,15 +57,15 @@ Photo: [MomentsofElegance.com](http://www.eweddingfavors.com/)
 ## Related Posts
 
 - [best cupcakes for wedding](https://baking.allwomenstalk.com/4-delicious-cupcakes-for-your-wedding/)
-- [The Charity Wedding: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/the-charity-wedding-above-and-beyond-the-wedding-industry/)
-- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
-- [wedding pictures idea](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
-- [girls loving dogs](https://wedding.allwomenstalk.com/1-guy-1-girl-1-dog-a-fun-loving-engagement-shoot-in-florida/)
 - [4 Wedding Inspiration Ideas: Teacups & Teapots ...](https://wedding.allwomenstalk.com/wedding-inspiration-teacups-teapots/)
-- [tulip wedding bouquets](https://wedding.allwomenstalk.com/5-beautiful-tulip-wedding-bouquets/)
-- [pink brides](https://wedding.allwomenstalk.com/ways-to-tickle-your-wedding-pink/)
-- [ice bucket decorating ideas](https://wedding.allwomenstalk.com/5-ways-to-use-buckets-for-your-wedding-decor/)
 - [just married cans behind car](https://wedding.allwomenstalk.com/7-fun-ways-to-decorate-a-wedding-car/)
+- [wedding pictures idea](https://wedding.allwomenstalk.com/8-ideas-for-fun-wedding-photography/)
+- [tulip wedding bouquets](https://wedding.allwomenstalk.com/5-beautiful-tulip-wedding-bouquets/)
+- [ice bucket decorating ideas](https://wedding.allwomenstalk.com/5-ways-to-use-buckets-for-your-wedding-decor/)
+- [The Charity Wedding: above and beyond the Wedding ...](https://wedding.allwomenstalk.com/the-charity-wedding-above-and-beyond-the-wedding-industry/)
+- [girls loving dogs](https://wedding.allwomenstalk.com/1-guy-1-girl-1-dog-a-fun-loving-engagement-shoot-in-florida/)
+- [pink brides](https://wedding.allwomenstalk.com/ways-to-tickle-your-wedding-pink/)
+- [daisies wedding](https://wedding.allwomenstalk.com/sweet-ideas-for-a-daisy-themed-wedding/)
 - [8 Amazing Ideas for Wedding Invitations ...](https://wedding.allwomenstalk.com/8-amazing-ideas-for-wedding-invitations/)
 - [5 Unique Vases for Your Wedding Centerpieces ...](https://wedding.allwomenstalk.com/5-unique-vases-for-your-wedding-centerpieces/)
 
